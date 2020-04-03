@@ -1,5 +1,5 @@
 # Data Sources and other details
-Full summary is contained in [summary.txt]()
+Full summary is contained in [summary.txt](https://github.com/IgnatiusEzeani/IGBONLP/blob/master/ig_en_mt/ig_data/summary.txt)
 * **eze_goes_to_schoo**l: [Master's Thesis; UZOALOR, JOY UCHE]
 	- Source text = 125.5 KiB
 	- Formats: 1 book
