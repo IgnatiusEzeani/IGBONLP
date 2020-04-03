@@ -8,7 +8,7 @@ This repository contains a collection of human corrected and validated Igbo mono
 ## Repo Content:
 This repo contains:
 ### Monolingual data:
-The content summary is presented below while the source details can be found [here]():
+The content summary is presented below while the source details can be found [here](https://github.com/IgnatiusEzeani/IGBONLP/blob/master/ig_en_mt/ig_data/summary.txt):
 | Filename | Sentences | Tokens | UniqTkns|
 | --- |  ---: | ---: | ---: |
 |eze_goes_to_school.txt | 1,272 | 25,413 | 2,616 |
