@@ -1,4 +1,5 @@
 # Data Sources and other details
+Full summary is contained in [summary.txt]()
 * **eze_goes_to_schoo**l: [Master's Thesis; UZOALOR, JOY UCHE]
 	- Source text = 125.5 KiB
 	- Formats: 1 book
