@@ -2,11 +2,11 @@
 
 # Igbo-English Machine Translation: An Evaluation Benchmark
 
-This repository contains a collection of human corrected and validated Igbo monolingual data and human-translated Igbo-English sentence pairs for training machine translation systems as presented in this paper:
-[Igbo-English Machine Translation: An Evaluation Benchmark](https://arxiv.org/abs/2004.00648)).
+So far, this repository contains a collection of human corrected and validated Igbo monolingual data and human-translated Igbo-English sentence pairs for training machine translation systems as presented in this paper:
+[Igbo-English Machine Translation: An Evaluation Benchmark](https://arxiv.org/abs/2004.00648)). Work on the comparative experiments for the Ig-En MT baselines are still on-going and will be included soon. 
 
 ## Repo Content:
-This repo contains:
+This repo contains both the **monolingual** and **parallell (Ig-En)** data:
 ### Monolingual data:
 The content summary is presented below while the source details can be found [here](https://github.com/IgnatiusEzeani/IGBONLP/blob/master/ig_en_mt/ig_data/summary.txt):
 | Filename | Sentences | Tokens | UniqTkns|
@@ -22,6 +22,9 @@ The content summary is presented below while the source details can be found [he
 |jw-ulo_nche.txt | 277,60 | 392,412 | 10,868|
 |jw-ulo_nche_naamu.txt | 113,772 | 1,465,663 | 17,870|
 |**Total** | **383449** | **5724201** | **69091**|
+
+### Parallel (IG-EN) data:
+
 
 Work on the baseslines is on-going following the approach used [Facebook Research FloRes Project](https://github.com/facebookresearch/flores) and wil be released in this repo when ready.
 
@@ -41,6 +44,35 @@ Fluency rating > 3.0/5.0 , Translation rating > 70.0/100.0
 |language pair| devset | testset|testset (hidden)|
 |---|---|---|---|
 |Igbo-English| 10000| 1000| 584|
+
+```latex
+\begin{table}[!ht]
+\caption{Breakdown of the Benchmark Evaluation Parallel Data}
+\label{breakdown}
+\centering
+\begin{tabular}{lrl}
+\hline
+\multicolumn{1}{l}{\textbf{Type}}&\multicolumn{1}{c}{\textbf{Sent pairs}}&\multicolumn{1}{l}{\textbf{Sources}}\\
+\hline
+\textit{Igbo-English} & 5,836 & \url{https://www.bbc.com/igbo}\\
+\textit{English-Igbo} & 5,748 & Mostly from local newspapers (e.g. Punch)\\
+\hline
+\textit{Total} & $11,584$ &\\
+\hline
+\end{tabular}
+\caption{Splits of the Benchmark Evaluation Parallel Data}
+\label{splits}
+\begin{tabular}{lrl}
+\hline
+\textbf{Evaluation Splits} & \textbf{IG-EN} & \textbf{EN-IG}\\
+\hline
+\textit{Development Set} & 5000 & \multicolumn{1}{r}{5000}\\
+\textit{Test set} & 500 & \multicolumn{1}{r}{500}\\
+\textit{Hidden Test} & 336 & \multicolumn{1}{r}{248}\\
+\hline
+\end{tabular}
+\end{table}
+```
 
 ## Citation
 ```bibtex
