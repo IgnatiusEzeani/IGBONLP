@@ -41,38 +41,19 @@ Fluency rating > 3.0/5.0 , Translation rating > 70.0/100.0
 + The sets are as follows:
 -->
 
-|language pair| devset | testset|testset (hidden)|
-|---|---|---|---|
-|Igbo-English| 10000| 1000| 584|
+|Type| Sent pairs | Source |
+|---|---:|---|
+*Igbo-English* | 5,836 | \url{https://www.bbc.com/igbo}
+*English-Igbo* | 5,748 | from Nigerian newspapers (e.g. Punch)
+**Total** | 11,584$ |
 
-```latex
-\begin{table}[!ht]
-\caption{Breakdown of the Benchmark Evaluation Parallel Data}
-\label{breakdown}
-\centering
-\begin{tabular}{lrl}
-\hline
-\multicolumn{1}{l}{\textbf{Type}}&\multicolumn{1}{c}{\textbf{Sent pairs}}&\multicolumn{1}{l}{\textbf{Sources}}\\
-\hline
-\textit{Igbo-English} & 5,836 & \url{https://www.bbc.com/igbo}\\
-\textit{English-Igbo} & 5,748 & Mostly from local newspapers (e.g. Punch)\\
-\hline
-\textit{Total} & $11,584$ &\\
-\hline
-\end{tabular}
-\caption{Splits of the Benchmark Evaluation Parallel Data}
-\label{splits}
-\begin{tabular}{lrl}
-\hline
-\textbf{Evaluation Splits} & \textbf{IG-EN} & \textbf{EN-IG}\\
-\hline
-\textit{Development Set} & 5000 & \multicolumn{1}{r}{5000}\\
-\textit{Test set} & 500 & \multicolumn{1}{r}{500}\\
-\textit{Hidden Test} & 336 & \multicolumn{1}{r}{248}\\
-\hline
-\end{tabular}
-\end{table}
-```
+The data splits into *Dev set*, *Test set* and *hidden set* are shown below. The *hidden set* is held out for further evaluations on trained and tested MT models. 
+
+|Evaluation Splits | IG-EN | EN-IG |
+|---|---:|---:|
+*Dev Set* | 5000 | 5000 |
+*Test Set* | 500 | 500 |
+*Hidden* | 336 | 248 |
 
 ## Citation
 ```bibtex
