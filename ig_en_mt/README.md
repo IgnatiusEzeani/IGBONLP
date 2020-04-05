@@ -43,8 +43,8 @@ Fluency rating > 3.0/5.0 , Translation rating > 70.0/100.0
 
 |Type| Sent pairs | Source |
 |---|---:|---|
-*Igbo-English* | 5,836 | [BBC Igbo](https://www.bbc.com/igbo)
-*English-Igbo* | 5,748 | from Nigerian newspapers (e.g. [Punch](https://punchng.com/))
+*Igbo-English* | 5,836 | News from [BBC Igbo](https://www.bbc.com/igbo) website
+*English-Igbo* | 5,748 | News from Nigerian newspapers (e.g. [Punch](https://punchng.com/))
 **Total** | 11,584 |
 
 The data splits into *Dev set*, *Test set* and *hidden set* are shown below. The *hidden set* is held out for further evaluations on trained and tested MT models. 
