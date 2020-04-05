@@ -43,7 +43,7 @@ Fluency rating > 3.0/5.0 , Translation rating > 70.0/100.0
 
 |Type| Sent pairs | Source |
 |---|---:|---|
-*Igbo-English* | 5,836 | \url{https://www.bbc.com/igbo}
+*Igbo-English* | 5,836 | [BBC Igbo](https://www.bbc.com/igbo)
 *English-Igbo* | 5,748 | from Nigerian newspapers (e.g. Punch)
 **Total** | 11,584$ |
 
