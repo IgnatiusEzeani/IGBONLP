@@ -44,10 +44,12 @@ Fluency rating > 3.0/5.0 , Translation rating > 70.0/100.0
 
 ## Citation
 ```bibtex
-@inproceedings{ezeani_ig_en_evalset_2020,
-author={Ezeani, Ignatius and Rayson, Paul and Onyenwe, Ikechukwu and Uchechukwu, Chinedu, Hepple, Mark},
-title={Igbo-English Machine Translation: An Evaluation Benchmark},
-journal={arXiv preprint arXiv:2004.00648},
-year={2020}
+@misc{ezeani2020igboenglish,
+    title={Igbo-English Machine Translation: An Evaluation Benchmark},
+    author={Ignatius Ezeani and Paul Rayson and Ikechukwu Onyenwe and Chinedu Uchechukwu and Mark Hepple},
+    year={2020},
+    eprint={2004.00648},
+    archivePrefix={arXiv},
+    primaryClass={cs.CL}
 }
 ```
