@@ -70,7 +70,7 @@ print('-'*10)
 print("\n".join(par_data.devset[1][:5]))
 ```
 Output:
-```python
+```
 ---Igbo sentences:
 Akụkọ ndị ga-amasị gị:
 Joseph Achuzie, Dike Biafra alala
