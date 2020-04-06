@@ -59,6 +59,9 @@ The data splits into *Dev set*, *Test set* and *hidden set* are shown below. The
 Running the `read_data.py` creates the ParallelData class which builds the *Devset* and the *testset* with its `get_evalsets()` method. The following example produces the results below:
 
 ```python
+par_data = ParallelData(datapath)
+par_data.get_evalsets()
+
 #Igbo sents
 print("\n".join(par_data.devset[0][:5]))
 print('-'*10)
