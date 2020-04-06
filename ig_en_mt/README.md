@@ -51,9 +51,35 @@ The data splits into *Dev set*, *Test set* and *hidden set* are shown below. The
 
 |Evaluation Splits | IG-EN | EN-IG |
 |---|---:|---:|
-*Dev Set* | 5000 | 5000 |
-*Test Set* | 500 | 500 |
+*Devset* | 5000 | 5000 |
+*Testset* | 500 | 500 |
 *Hidden* | 336 | 248 |
+
+## Usage
+Running the `read_data.py` creates the ParallelData class which builds the *Devset* and the *testset* with its `get_evalsets()` method. The following example produces the results below:
+
+```python
+#Igbo sents
+print("\n".join(par_data.devset[0][:5]))
+print('-'*10)
+
+#English sents
+print("\n".join(par_data.devset[1][:5]))
+```
+Output:
+```
+Akụkọ ndị ga-amasị gị:
+Joseph Achuzie, Dike Biafra alala
+Dapchi: Gọọmenti emeribeghị Boko Haram - Massob
+Tottenham na-ele anya iburu iko FA na mmeri Rochadale
+Son Heung-min, Fernando Llorente na Kyle Walter-Peters nke Tottenham bụ ndị mmechiri ọnụ Rochadale n'asọmpị ụnyaahụ.
+----------
+The news that will interest you:
+Joseph Achuzie, the Biafran brave man is gone.
+Dapchi: Government  has not defeated Boko Haram and Massob
+Tottenham look forward to lifting the FA cup in defeating Rochadale.
+Son Heung-min, Fernando Llorente and Kyle Walter-Peters of Tottenham beat Rochadale mercilessly in their yesterday's FA cup competition.
+```
 
 ## Citation
 ```bibtex
