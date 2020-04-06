@@ -70,13 +70,15 @@ print('-'*10)
 print("\n".join(par_data.devset[1][:5]))
 ```
 Output:
-```
+```python
+---Igbo sentences:
 Akụkọ ndị ga-amasị gị:
 Joseph Achuzie, Dike Biafra alala
 Dapchi: Gọọmenti emeribeghị Boko Haram - Massob
 Tottenham na-ele anya iburu iko FA na mmeri Rochadale
 Son Heung-min, Fernando Llorente na Kyle Walter-Peters nke Tottenham bụ ndị mmechiri ọnụ Rochadale n'asọmpị ụnyaahụ.
-----------
+
+---English sentences:
 The news that will interest you:
 Joseph Achuzie, the Biafran brave man is gone.
 Dapchi: Government  has not defeated Boko Haram and Massob
