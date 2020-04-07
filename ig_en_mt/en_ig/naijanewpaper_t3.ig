@@ -1,18 +1,7 @@
-Ụlọ ntaakụkọ Anambara dị n'ọka
-Akwụkwọ ntaakụkọ nke 15:30 na 18:00 nke ehihe na Monde 26 nke ọnwa Febuari, 2018.
-Onye gụrụ akụkọ a bụ
 Gomenti nke Steeti na-atụ anya ịrụkwụ okporo ụzọ n'ngalaba Steeti na-akọ ọrụ ugbo
 Ndị dịbịa bekee na-akwado ndị nne ka ha na-enye umu ha sọ ara ruo ọnwa isii
 CBN keere ndị ọrụ ugbo ego karịrị bilionu iri ise na ise ịjị kwadoo mmeputa ihe oriri.
 Ode akwụkwọ otu jịkọrọ mba ụwa ọnụ bu Guterres na-akpọkụ ka akwụsị ịlụ ọgụ nke bụ mkpebi nke mpaghara ha na-arụ ọrụ nchekwa.
-Nkọwapụta na-aga: Njịrịmara ezigbo onye ndu nwere ọhụụ
-NJIDE/IFY26/2/18
-Ụlọ ntaakụkọ Anambara dị n'ọka
-Tụpụ akọ akụkọ a n'uju, nkea bụ ozi di mkpa
-Ichekwa ndu na ihe onwunwe na steeti bụ ihe kachasị dị mkpa n'ọchịchị Willie Obiano
-maka inata ozi gwangwa n'oge mpu ma o bu oge ihe mgberede daputara, kpoo akara ekwentia 0-7-0-3-9-1-9-4-3-3-2 ebe obula I no
-ọzọ 0-7-0-3-9-1-9-4-3-3-2
-26/2/2018 NJIDE/IFY
 Gọọmentị steeti na-agba mbọ imepekwu okporo ụzọ na mpaghara ndi ọrụ ugbo nke steeti iji mee ka ọ dịkwuo elu
 Gọvanọ Willie Obiano gosipụtara nke a mgbe o nyochara ọrụ owuwa na kilomita ise ahụ sị ụzọ St Anthony nke Padua ruo Ugwu Odu Udala /Eke Market Road, Igbariam.
 N'oge nyocha ahụ, a chọpụtara na okporo ụzọ nke enyefere afọ gara aga na ebidola ọrụ n'uju ebe ahu.
@@ -24,10 +13,8 @@ Kọmịshọna na-ahu maka akụrụngwa maka okporo ụzọ, arịa ụlọ na
 Onye ọrụ ngo ahụ na-ahụ maka ọrụ ahụ bu  Chief Neville Uchendu kpughere na gọvanọ Obiano enyela ha nkwado niile ha chọrọ iji rụchaa ọrụ a ma kwe kwa nkwa na ya ga-arụ ọrụ ndi mmadụ jị a maatụ.
 Onye ndu ọdịnala nke Igbariam bụ Igwe Kelly Nzekwe, kelere gọvanọ Obiano maka icheta ndị obodo ya ma masie ya obi ike na ha na-akwado ya.
 Ụfọdụ n'ime ndị obodo ahụ gụnyere Chief Celestine Mozie na Oriaku Ngozi Okeke mgbe ha na-ekele ha maka ọrụ ha na-arụ n'okporo ụzọ, kwuru na ha nweziri ike iwe ihe ubi ha ma kelee gọvanọ Obiano maka mmeso ọma o nwere n'ebe ha nọ.
-OFOMAH/JOY/GRACE/NJIDE/IFY26/2/18
 Ị maara na mmiri ara abụghị naanị ọnụ ala na ịdị ọcha ka ọ dị, kama. Onwere ihe niile nri nwata chọrọ ka o nwee maka ọgụgụ isi
 N'akukọ a, Ekwi Ajide lebara anya n'ihe mere ndị dịbịa bekee ji akwado ichụ naani mmiri ara ruo ọnwa isii
-Olu
 Inye nwa naani ara ruo ọnwa isii ma ọ bụ ruo ọnwa itolu pụtara inye nwa naani ara na-enyeghi mmiri, ọgwụ ma ọ bụ ụdị nri ọ bụla.
 Inye nwa naani mmiri ara di ka dịbịa bekee  Cliff Okafor si kwuo, bụ nanị ụzọ e ji egbochi
 O kwuru na ụmụ a na-enye mmiri ara na-aka eme nke ọma karịa ndị enyeghi mmiri ara, ndị ahụ na-abụ ndị ọjọọ
@@ -35,16 +22,13 @@ Dkt. Okafor dọrọ aka na nti na inye nwata mmiri ara na abughi nke mmadu nwer
 Ọ gwara ndị nne bu nje HIV ka ha nweta ndụmọdụ site n'aka onye ọrụ ahụike siri ike, etu ha ga-esi nye nwa ha ara ka ọ ghara ibunye nwa ahụ nje ahụ
 N'aka ya, Odz. Maria Ejiofor bu nọọsụ kwuru na inye ara bụ ụzọ kacha mma eji enye nwa nri. Mara na inye nwa ara na enye aka igbochido ụmụ ọhụrụ ọrịa
 Odz. Maria Ejiofor kwadokwara ndị nne na-arụ ọrụ bekee, n'agbenyeghị ọrụ ha ka ha na-enye ụmụ ha mmiri ara iji mee ka ha na ha nwee ịdị n'out
-UP SOT
-Ọ na-adụ ọdụ na site n'ọnwa isii. A ga enwebata ụdị nri ndị ọzọ gbakwunye mmiri ara ruo afọ abụọ
-COV/EKWLJOY/GRACE/NJIDE/IFY 26/2/18
+Ọ na-adụ ọdụ na site n'ọnwa isii. A ga ewebata ụdị nri ndị ọzọ gbakwunye mmiri ara ruo afọ abụọ
 Mmeghachi omume na-aga n'ihu na-eduga ihe ọjọọ mere ebe nwoke gburu ụmụ ya anọ, onye na-eje ozi na onwe ya na  No 19 Ntueke Streeti, ala 10, Awada. Ebe ndị bi gburu gburu duru ndị mmadu ọdụ ka ha gosiputa nchegbu oge niile mgbe ha hụrụ ihe ndị dị ịtụnanya ma ọ bụ nụ mkpu arịrị na gburugburu ha.
 Ụfọdụ ndị bị gburugburu a gụnyere Meers Herbert Okolie, Nathaniel Obiefuna, Abuchi Chinedu na Emenike Alaneme kọwara ya dịka arụ, o kwuru na ọ ga-abụrịrị na nwoke a mere arụ a site na ndu mmụọ ọjọọ , na-agbakwunye na mkpu ụmụaka ahụ kwesiri ịdọrọ uche ndi agbata obi ha
 Odz. Comfort Alaneme, onye ọzọ bị n'Awada metere ezinụlọ a ebere kachasi nne ụmụ ahụ, o kwuru maka ndụmọdụ nwanyị a na nlezi anya ya ebe ọ bụ na ọdachị ahụ bụ ihe a na-apụghị icheta n'echiche ma dụọ ndị nwoke ọdụ ka ha chekwaa udi ndu ha na-ebi iji zere nsonaazu na-adịghị mma na ezinụlọ ha.
 onye a pụrụ ịdabere na ya gwara ndị ABS na nwoke nkea si Imo steeti wee lụọ onye nọọsụ, bụ onye achụpụrụ na mba ofesi na omume ya doro anya na ọ bụ onye ezighi ezi nke nwere ike ibu n'ihi nsi ụfọdụ enyere ya maka iga ọrụ ọjọọ.
 Enwere ike icheta na nwoke ahụ gbụrụ ụmụ ya anọ, odibo ya, ma mesia gbuo onwe ya na Satọde n'izu gara aga.
 Mgbalị iji nweta nne ụmụaka ahụ bụkwa onye nọọsụ kuru afọ n'ala ka a gwara ABS na ndị ikwu ya kpọọrọ ya.
-RPT/ORANU/JOY/GRACE/NJIDE/IFY 26/2/18
 Ndị sonyere na nkụzị ụbọchị abụọ n'Abakiliki, Ebonyi Steeti achọpụtala nruzighari nke echiche ndị isi ala na ọha mmadụ dị ka nnukwu nzọụkwụ iji gosipụta mmezu nkwupụta iri atọ na ise.
 Ndị na-ekwu okwu na ọgbakọ omumu ihe na-aga n'ihu na isiokwu ya 'Ọrụ nke ndị otu obodo na ndị mgbasa ozi iji nweta mmeputa zuru oke nke pesenti iri atọ na ise na South-East'. Chere na ọdịdị nwoke na-egbochi ụmụ nwanyị ịkpa oke di n'etiti ọha mmadụ.
 Otu onye n'ime ndị ọrụ nchekwa, Nwa Eze Sam Ezeanyika  onye depụtara ihe mgbochi iji rụpụta ihe dị egwu nke gụnyere ịda ogbenye, enweghị ntụkwasị obi, mgbochi ọdịbendị na ihe otu ndọrọ ndọrọ ọchịchị, kwusiri ike na agụmakwụkwọ , ike ego na ikpughe mgbasa ozi nwere ike inyere ụmụ nwanyị aka inwe ohere ịbụ ndị isi

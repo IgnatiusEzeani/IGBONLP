@@ -45,9 +45,7 @@ class ParallelData:
 par_data = ParallelData(datapath)
 par_data.get_evalsets()
 
-#Igbo sents
+print('---Igbo sentences:')
 print("\n".join(par_data.devset[0][:5]))
-print('-'*10)
-
-#English sents
+print('\n---English sentences:')
 print("\n".join(par_data.devset[1][:5]))
