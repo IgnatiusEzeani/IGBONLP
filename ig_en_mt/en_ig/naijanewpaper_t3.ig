@@ -3,7 +3,7 @@ Ndị dịbịa bekee na-akwado ndị nne ka ha na-enye umu ha sọ ara ruo ọn
 CBN keere ndị ọrụ ugbo ego karịrị bilionu iri ise na ise ịjị kwadoo mmeputa ihe oriri.
 Ode akwụkwọ otu jịkọrọ mba ụwa ọnụ bu Guterres na-akpọkụ ka akwụsị ịlụ ọgụ nke bụ mkpebi nke mpaghara ha na-arụ ọrụ nchekwa.
 Gọọmentị steeti na-agba mbọ imepekwu okporo ụzọ na mpaghara ndi ọrụ ugbo nke steeti iji mee ka ọ dịkwuo elu
-Gọvanọ Willie Obiano gosipụtara nke a mgbe o nyochara ọrụ owuwa na kilomita ise ahụ sị ụzọ St Anthony nke Padua ruo Ugwu Odu Udala /Eke Market Road, Igbariam.
+Gọvanọ Willie Obiano gosipụtara nke a mgbe o nyochara ọrụ owuwa na kilomita ise ahụ sị ụzọ St Anthony nke Padua ruo Ugwu Odu Udala-Eke Market Road, Igbariam.
 N'oge nyocha ahụ, a chọpụtara na okporo ụzọ nke enyefere afọ gara aga na ebidola ọrụ n'uju ebe ahu.
 Mgbe oge nyocha a gara, gọvanọ Obiano kwuru na nrụcha ụzọ a ga enweta mmepe nke obodo ndi n'akọ ọrụ ugbo n'steeti
 Ọ makwara ọkwa na gọọmentị ga-emecha nrụnye ọkụ n'okporo ụzọ si ngịga Igbariam ruo mahaduum Chukwuemeka Odumegwu Ojukwu n'ime ọnwa abụọ
@@ -33,48 +33,28 @@ Ndị sonyere na nkụzị ụbọchị abụọ n'Abakiliki, Ebonyi Steeti ach�
 Ndị na-ekwu okwu na ọgbakọ omumu ihe na-aga n'ihu na isiokwu ya 'Ọrụ nke ndị otu obodo na ndị mgbasa ozi iji nweta mmeputa zuru oke nke pesenti iri atọ na ise na South-East'. Chere na ọdịdị nwoke na-egbochi ụmụ nwanyị ịkpa oke di n'etiti ọha mmadụ.
 Otu onye n'ime ndị ọrụ nchekwa, Nwa Eze Sam Ezeanyika  onye depụtara ihe mgbochi iji rụpụta ihe dị egwu nke gụnyere ịda ogbenye, enweghị ntụkwasị obi, mgbochi ọdịbendị na ihe otu ndọrọ ndọrọ ọchịchị, kwusiri ike na agụmakwụkwọ , ike ego na ikpughe mgbasa ozi nwere ike inyere ụmụ nwanyị aka inwe ohere ịbụ ndị isi
 Ọ kwara ụta na ọtụtụ mgbanwe na mgbanwe dị mma achọrọ na ndọrọ ndọrọ ọchịchị mba a anọghị ya n'ihi na ụmụ nwanyị nwere ike iweta ha pere mpe na ọkwa mkpebi kachasị elu
-26/2/18 DNCA/JOY/GRACE/NJIDE/IFY
-Ụlọ ntaakụkọ Anambara dị n'ọka
-Akụkọ a n'abịara gị
-Site n'njiko ozi nke Anambara
-Ulo ozisa ozi, Oka
-26/2/2018 NJIDE/IFY
-Ulo ozisa ozi, Anambara
-Ndia bu isi okwu
-Gọọmentị steeti ezubere iwukwu okporo ụzọ na ọrụ ugbo
-mpaghara nke Steeti
-Ndị dịbịa bekee na-akwado ndị nne ka ha na-enye umu ha sọ ara
-umuaka opekata mpe onwa isii
-ka n-abia
 CBN na-enye ndị ọrụ ugbo n'ofe mba a ego karịrị ijeri iri ise na ise ịjị kwadoo mmepụta ihe oriri.
 Onye odeakwụkwọ UN Guterres mere oku ka etinye ngwa ngwa nke mkpebi kansụl nchekwa maka ịkwụsị ọkụ na Syria.
-Nọrọ na-ekiri
-26/2/2018 NJIDE/IFY
 Ngalaba na-ahu maka ụlọ akụ mba Naijiria (CBN) adịla njikere ịgbasa obosara ya na-ahụ maka mbiri ego n'asụsụ bekee 'ABP' ji ijeri naira iri anọ na abụọ akwado maka ịzụ ọkụkọ
 Ka ọ dị ugbu a, CBN site na ABP enyela ndị ọrụ ugbo puku narị abụọ na iri ise ego ruru ijeri naira iri ise na ise. N'usoro ahụ emepụtara ọrụ nde atọ na iri ano na itoolu, ebe ọrụ puku nari asatọ na iri itoolu dị dairet, ọrụ nde abụọ na puku nari isii adịghị dairet
 Gọvanọ CBN mazi Godwin Emefiele kwuputara nke a ebe a na-eme mmeme pụrụ iche nke akụmakụ n'Emere-Ile, Ondo Steeti.
 O ruturu aka na ahịhịa greenfield n'asụsụ bekee ka enye nnukwu aka ịzọchị ndolazu dị n'ikesa ihe emepụtara n'ụlọ ọrụ ozuzu ọkụọ. Ọ dabakwara na mkpebi CBN ga-eme ka amịpụta ihe ubi dị n'ime ala, belata mbubata ihe ndị a ga-emenwu na Naịjirịa , ma si otu a nye aka chekwaa mgbanwe ego si mba ọzọ
-VANG/JOY/GRACE/NJIDE/IFY 26/2/18
 Otu jịkọtara ndị ntaakụkọ Naịjirịa, agwala gọọmentị onye isi ala Muhammadu Buhari ka o lee anya nke abụọ n'ọgụ ya megidere nrụụ aka n'ihi nkwupụta na 'Transperensi Intanashonal' nke dobere Naịjirịa dịka mba nke abụọ kacha mebie n'ụwa niile.
 Dị ka akụkọ si kọọ, Naịjirịa gbara ndị nke otu nari na iri anọ na asatọ  n'ime mba otu nari na iri asatọ enyochara n'afọ 2017 n'uche maka nrụrụ aka na ntụle elele nrụrụ aka kwa afọ
 Ndekọ ntanetị gosiri na n'ime akara otu nari iji gosi kwụ ọtọ na-enweghi nrụrụ aka ọbula, Naịjirịa nwere akara iri abụọ na asaa. Na nkwupụta o nyefere ndị nta akụkọ NUJ kwupụtara nchegbu na ebe ndị mba ndị ọzọ na etolite n'ihe gbasara nrụrụ aka, Naịjirịa na-akawanye njọ ka a na-eleghara anya ọgụ a na-alụ megide nrụrụ aka.
 Nkwupụta ahụ toro mgbalị nke gọọmentị nke onye isi ala  Muhammadu Buhari kemgbe o rigoro n'ọkwa ọ na-alụ ọgụ nrụrụ aka. Agbanyeghị, ha kpọrọ oku ka ndị ndu leba anya dị ukwuu iji nweta mgbanwe dị mkpa n'ọgụ a.
 Ha kpọkuru gọọmentị ka o mee ka ọkụ a na-enwu n'ime ya nakwa ndị so n'otu ndọrọ ndọrọ n'achịachị . Na ekwesighi inwe onye ọkụ a aghaghị erute
 Ndị otu ahụ kwuru na akụkọ nke otu na-ahu maka nrụrụ aka mba ụwa bụ mkpote ụra nyere gọọmentị nke na-atụkwasị onwe ya obi na mbuso agha ya megide nrụrụ aka ga-agbatikwu mbọ ya n'ịlụ ọgụ a
-MONIC/JOY/GRACE/NJIDE/IFY 26/2/18
-Akụkọ ntụrụndụ
 Otu akụkọ banyere ọnwụ na Dubai kpughere na onye ome ihe nkiri Bollywood Sridevi Kapoor nwụrụ n'ihe mgberede nke mmiri
 Onye na-eme ihe nkiri a dị afọ iri ise na anọ nke a maara dịka Sridevi nwuru n'ihe ịsa ahụ n'ụlọ ịsa ahụ na nkwari akụ ya mgbe ọ pụrụ mmụọ.
 A kọọrọ na mbụ na ọ nwụrụ n'ihi njide obi mgbe ọ nọ n'agbamakwụkwọ ezinụlọ na Dubai
 Ndi otu Bollywood, ndi egwuregwu na ndi isi ndọrọ ndọrọ ọchịchị egosila obi nwute na ọnwụ ya. Ogwe aka mgbasa ozi nke gọọmentị nke Dubai kwuru na nyocha ahụ nwụrụ
 Emechara, mata ihe kpatara ọnwụ
-26/2/18 BBC/DAVID/JOY/GRACE/NJIDE/1FY
 Onye odeakwụkwọ ukwu nke otu jikọrọ mba ụwa bụ Antonio Guterres akpọọla oku ka emee ngwa ngwa maka mkpebi kansụl nchekwa maka ịkwụsị ọkụ ụbọchị iri atọ na Syria.
 Mgbe ọ na-ekwu okwu na kansul kọmitii na-ahu maka nchekwa mmadụ nke otu mba ụwa na Geneva, Switzerland, Guterres kọwara ọnọdụ ahụ dị ka 'ọkụ mmụọ nọ n'ụwa' ka gọọmentị Syria na-aga n'ihu na-agba mgba na mkọsa nke ndị nnupụisi enwere.
 Guterres chetaara ndị otu niile oke n'ọrụ ha na mmekọrịta mmadụ n'ụwa na ikike ichedo ndị nkịtị na akụ na ụba ndị nkịtị oge niile.
 Okwu a na-abịa dị ka ndị dibia bekee nọ na nnọchi anya akwụkwọ ahụ na-ebo gọọmentị ebubo ịmalite mbuso agha kloriin na obodo  AI-Shifaniyah ọwụwa anyanwụ Ghouta.
 Ndị na-ahụ maka nchekwa obodo Syria nke a makwaara dị ka ndị okpu agha ọcha kwuru na ọ dịkarịa mpe, otu nwatakịrị nwụrụ n'ihi nkogbu ahụ.
-26/2/278 BBC/JOY/GRACE/NJIDE/IFY
 E liela ozu Ezinne Maria Oyibo Okafor na be di ya nọ n'Adagbe Orofia dị n'Abagana.
 Ezinne Oyibo Okafor onye nwụrụ mgbe ọ gbara afọ iri asatọ bụ nne onye nhazi zonu Mashal pụrụ iche nke RS5 Enugwu ma burukwa osote onye isi oche chemba nke komesi di n'Aba bụ Dennis Okafor
 Misa olili ozu nke e mere na ụlọ ụka onye nsọ Francis onye Assisi dị Abagana dọtara ndị n'eme emeeme n'obodo gunyere onye isi ndị na-ahụ maka nchekwa okporo ụzọ RS5 nke Enugwu, osote onye isi ndị uwe ojii Samuel Obayemi onye du ndị isi ndị ọzọ na ndị ọrụ ndị ọzọ. Ndị n'eme ihe nkiri, ndị otu chemba Aba n'etiti ndị ọzọ bịara iso ezinụlọ Okafor gbaa mkpe.
@@ -85,52 +65,23 @@ Onye a maama n'ihi nkiri bụ Pete Edochie kwadoro ezinụlọ a ka ha tasie obi
 Ada nwanyị nwụrụ anwụ bu odz. Florence Nwude, nne ha biri ndụ mịrị mkpụrụ ma hụ na ha nwetere agụmakwụkwọ n'agbanyeghi ọnwụ di ya. Na-ekwu si na iwu nke ekpere, ịrụsi ọrụ ike na nguzosi ike ga-adịgide n'okwu ha.
 Ka ọ na-ekele Chineke na ndị nyeere ha aka n'oge ha na-eru uju, Dennis Okafor kwuru na a ga-echeta nne ha maka obi ike ya na ntachi obi na ndụ ya.
 Onye ntaakụkọ bụ Amaka Chibuzor Okoye  kwuru na mgbaru bụ ihe kachasị e mere n'akwamozu ahụ.
-AMAKA/JOY/GRACE/NJIDE/IFY 26/2/18
-Ụlọ ntakụkọ Anambara dị n'ọka
-Iji kwusị ozi a, nke a bụ ozi pụrụ iche
-Nchekwa nke ndụ na ihe ndị ọzọ dị na Steeti dị n'elu ihe a ga-eme n'ọchịchị Willie Obiano
-maka inata ozi gwangwa n'oge mpu ma o bu oge ihe mgberede daputara, kpoo akara ekwentia 0-7-0-3-9-1-9-4-3-3-2 ebe obula I no
-ọzọ 0-7-0-3-9-1-9-4-3-3-2
-NJIDE/FY 26/2/2018
-Cheta na inwere ike ige ABS 88.5FM site n'akụkụ ọ bụla nke ụwa site na njikọ ndị: www.ABSRADIOTV.COM.
-Nbudata "ụda .N REDIO" na ekwenti obula chọọ  ABS 88.5FM na ụlọ mgbasa ozi nke Anambara site n'akara @ Ww.FACEBOOK.COM/ABSRADIOTELESION
-Soro anyị na akara TWITTER@ ABSRADIOTV
-NJIDE/IFY 26/2/2018
-Ụlọ ntakụkọ Anambara dị n'ọka
-Ugbua, isi ahuru kpuru okpu
 Gọọmentị steeti ezubere iwu maka ịrụkwu ụzọ na mpaghara n'akọ ugbo nke steeti
 Ndị dibia bekee agbaala ndị nne ume ka ha n'enye ụmụ ha naanị mmiri ara ruo ọnwa isii
 CBN na-enye ndị ọrụ ugbo n'ofe mba a ego karịrị ijeri naira iri ise na ise ịjị kwadoo mmepụta ihe oriri.
 Ode akwụkwọ otu jịkọrọ mba ụwa ọnụ bu Guterres na-akpọkụ ka akwụsị ịlụ ọgụ nke bụ mkpebi nke mpaghara ha na-arụ ọrụ nchekwa na Syria.
-Nke ahụ bụ njedebe nke akụkọ  NJIDEKA OKOYE haziri na ndị otu nrụpụta
-NJIDE/DFY 26/2/20187
-Akwụkwọ akụkọ  maka 06:30 & 12:00 nke ehihe na WED 14TH NOV, 2018.
-Onye gụrụ akụkọ a bụ
-Onye isi ndị ọrụ bu mz. Uduh kwuru na Anambara na-edu ndị steeti ọzọ n'ịkwụ ụgwọ ọnwa.
+Onye isi ndị ọrụ bu Mz. Uduh kwuru na Anambara na-edu ndị steeti ọzọ n'ịkwụ ụgwọ ọnwa.
 Ndị ọrụ nchekwa ụzọ iji bulie mkpọsa mgbasa ozi ha iji nwee ekeresimesi na-enweghi ọghọm na steeti
 Ndị omebe iwu ekwugharịla na ya ga-eme ngwangwa ngafe nke ndị uwe ojii Nigeria
 China agbanweela mkpebi ya maka iji akụkụ agụ na sayensị na ọgwụ ọdịnala
-Nkọwa dị na "ezinụlọ yana ọrịa shuga"
-14/11/2018 ABUCHI/AMADI
-Ụlọ ntakụkọ Anambara dị n'ọka
-Tupu akọ akụkọ a n'uju, nkea bụ ozi dị mkpa
 Nchekwa nke ndụ na ihe ndị ọzọ dị na Steeti dị n'elu ihe a ga-eme n'ọchịchị Willie Obiano
-maka inata ozi gwangwa n'oge mpu ma o bu oge ihe mgberede daputara, kpoo akara ekwentia 0-7-0-3-9-1-9-4-3-3-2 ebe obula I no
-Ọzọ 0-7-0-3-9-1-9-4-3-3-2 14/11/2018ABUCHI/AMADI
 Oge izizi akpa osikapa ka aga ekesara ndị ọrụ gọọmentị nke steeti erutala
 Onye isi ọrụ Mazị Harry Uduh natara ọkwa site n'aka onye enyemaka pụrụ iche nye gọvanọ n'ihe gbasara ego na odeakwụkwọ nke kọmitii na-ekenye aza e jikoro, mazị Confident Azodo n'ụlọ ọrụ dị n'ọka.
-Onye ntaakụkọ bụ Ejike Abana gwakwuru anyị
-Olu
 Mgbe ha natara ozi ahụ onye isi ndị ọrụ kwusiri ike na ihe a na-egosipụta nkwado gọvanọ Willie Obiano. Na-agbakwunye na kemgbe ozi ahụ bịara n'oge, ndị ọrụ Anambara niile ga-enweta osikapa otu ọnwa tupu ekeresimesi.
 Mazị Uduh bụ onye ọka iwu mgbe ọ na-enyere ndị ọchịchị Obiano aka ikwado ndị ọrụ, kelekwara gọvanọ maka idi mma ya.
 Na ụgwọ opekempe ọhụụ, Mazị Uduh kwuru na Anambara nọ n'isi ọtụtụ steeti ndị ọzọ ịkwụ ndị ọrụ ụgwọ ha na ụma.
-UP SOT
 N'oge mbu mgbe a na-enyefe ozi ahụ,onye enyemaka pụrụ iche nye gọvanọ n'ihe gbasara ego na odeakwụkwọ nke kọmitii na-ekenye aza ejikọrọ ọnụ na gọọmentị steeti na-agbasi mbọ ike iji hụ na akwụchara ụgwọ niile eji n'izu mbụ nke ọnwa Disemba. Gụnyekwa inye nkwado, na-agbakwunye nkesa osikapa ga-amalite site n'ụbọchị iri abụọ na anọ nke ọnwa a.
-UP SOT
 Onye na-emepụta osikapa steeti Anambara bu mazi Akai Egwuonwu  kwuru na ha enyochala ma kwado ogo ya na osikapa. Na-agba aka ebe na mkpụrụ ọbụla n'ime ya ka a kụrụ, gbute ma hazie na steeti.
-UP SOT
 A ga-echeta na gọvanọ Willie Obiano mere ka ikesa akpa osikapa nye ndị ọrụ gọọmentị buru ọdịnala kwa afọ kemgbe ebidoro ịchịkwa ya.
-COV/EJIKE ABANA/DENNIS/ABUCHI/AMADI 14/11/2018
 Gọọmentị steeti ahụ akwadola ọzụzụ maka ndị ntaakụkọ na steeti ahụ
 Kọmịshọna n'ahu maka ozi na mmụta oha na eze bụ mazị C-Don Adinuba kwupụtara nke a mgbe osote onye isi nke otu jikọrọ ndị ntaakụkọ dị n'Naijiria nke mpaghara C, Petrus Obi letara ya n'ụlọ ọrụ ya n'ọka
 Onye ntaakụkọ Ebele Ezeh nweere akụkọ a ebe a
@@ -142,7 +93,6 @@ Na nzukọ ndị nnọchi anya udo e mere n'Abiokwuta, Ogun Steeti ebe ndi e mer
 Na mbido okwu ya, osote onye isi oche mpaghara C nke otu NUJ mazị Obi kwuru na ha nọ na steeti ahụ dịka nleta ma too mmekọrịta dị n'etiti gọọmentị steeti na kansụl NUJ nke steeti, na-agwakwa ndị ntaakụkọ ka ha tinye uju mgbe ha n'arụ ọrụ ha.
 UPSOT
 N'ime ozi ekele, odeakwụkwọ NUJ na steeti ahụ bụ mazị Kenneth Oforma kọwara Obiano dịka gọvanọ kachasị buru enyi igwe mgbasa ozi.Onye isi oche nke otu ndị ntaakụkọ nke mba Naiijiria, mazị Emmanuel lfesinachi na odeakwụkwọ, mazị Emmanuel Udeagha so na ndị nnọchi anya ndị a
-RPT/EBELE EZEH/DENNIS/ABUCHI/AMADI 13/11/2018.
 Ndị ọrụ nchekwa ụzọ kwuru na ha ga ebuli mkpọsa mgbasa ozi ha iji nwee ekeresimesi na-enweghi ọghọm na steeti
 Onye isi ngalaba nke steeti bụ Sunday Ajayi kpuhere nke a n'mkparịta ụka ekwenti ya na Abuchi Nwozor
 Dịka mazị Ajayi si kowaa, otu a ga-eje njem mgbasa ozi gaa n'ụlọ ụka, ụlọ akwụkwọ, ụlọ alakụba, na ogige ntụrụndụ iji mee ka ndị ọkwọ ụgbọ ala na ndị ọrụ ndị ọzọ n'okporo ụzọ mata mkpa ọ dị irube isi n'iwu okporo ụzọ na
@@ -151,49 +101,40 @@ Kọmịshọna steeti nke ndị nchekwa okporo ụzọ kwuru na ụlọ ọrụ
 Ọ dụrụ ndị ọkwọ ụgbọala ọdụ ka ha gbaa mbọ hụ na ụgbọala ha dị mma tupu ha agbaa okporo ụzọ, na-echetekwara ha mkpa ọ dị izere ọghọm dị na ịgbafe ụgbọ ọzọ n'ike na ibu ibu kariri ha.
 Mazị Ajayi onye gosipụtara na ụlọ ọrụ na-ahụ maka nchekwa okporo ụzọ nke steeti ga-ebido mgbasa ozi kwụchịm na redio ihe onyoonyo gbasara iwu okporo ụzọ gwara ọha na eze ka ha kpachara anya mgbe niile.
 Nchekwa dịka oke na ọrụ onye niile
-14/10/2018 INTV/ABUCHI/DENNIS/ABUCHI/AMADI
 Ndị mba ụwa na-elele taa dịka ụbọchị ọrịa shuga
 Ndị otu ọkachamara nke mba niile na otu ahụike nke mba niile malitere n'afọ 1991, na nzaghachị ọnụ na mgbago n'ọnụ ọgụgụ ndị ọrịa shuga n'ụwa niile.
 N'ime akwụkwọ akụkọ a puru iche, Ekwi Ajide lebara anya n'etiti mmekọrita dị n'etiti ọrịa shuga na owuwa ọkpụkpụ.
-Olu
 Ụbọchị ọrịa shuga ụwa bụ ụbọchị edebere maka ikuzi gbasara ọrịa shuga nke na-abịa n'abalị iri na anọ n'ọnwa Nọvemba kwa afọ
 Ọrịa shuga bụ ọrịa adighị ebufe ebufe nke nwere ụdị abụọ, nke mbu na nke abụọ. Ebe enwere ike igbochi ma gwọkwa nke abụọ, a gaghị egbochinwu nke mbu mana a ga-ejikwanwu ya iji ọgwụ ịnsulin.
 Enwere oke mmekọrịta n'etiti ọrịa shuga na ịwa ọkpụkpụ dịka dịbịa bekee Amaechi Nwachukwu si kwuo. Ozugbo ọrịa shuga bụrụ nke mgbanwoju anya, e kwesịrị igbupụ ukwu o metutara iji chekwaa ndụ onye ọrịa.
 Ọ kwara akwa arịrị na ọtụtụ ndị mmadu amaghị ọnọdụ ahụike ha nke mere ha ji ebute ọrịa ahụ n'amaghị na ha bu ọrịa shuga.
 Dkt. Nwachukwu onye dọrọ aka na ntị na ileli ọrịa shuga nwere ike ibute ọnwụ ma ọ bụ ịgbụpụ ukwu. Ọ kwadoro ndị mmadụ ka ha gaa lele ahụ ha mgbe niile ma debe ndụmọdụ dịbịa bekee ha nyere ha mgbe niile.
 Ụfọdụ ndị n'arịa ya gunyere odozi akụ Eucharia Okeke onye e gbupụ goro ukwu ya na odozi akụ Juliana Ogbaka duru ndị na arịa ọrịa a ka ha na erubere ndụmọdụ dịbịa bekee ha.
-UP SOT
 Ebe onye nlekọta odozi akụ Ngozi Nwosu gwara ndị na-elekọta ndị ọrịa shuga ka ha gosi ha ịhụnanya na nlekọta oge niile.
-UP SOT
 Isi okwu ụbọchị ọrịa shuga nke afọ gara aga bụ ihe dị iche iche na-emetuta ihe ize ndụ nke ọrịa shuga na nsogbu ya, isikowu nke afọ a bụ ezinụlọ na ọrịa shuga.
 Ọrịa shuga gbasara ezinaụlọ niile
-COV/EKWI/DENNIS/ABUCHI/AMADI 14/11/2018
 Ụlọ ntakụkọ Anambara dị n'ọka
 Akụkọ ozi z n'abịara gị
 Site n'njiko ozi nke Anambara
 Ụlọ ntakụkọ dị n'ọka
-ABUCHI/AMADI 14/11/2018
 Ndịa bụ isi okwu
 Onye isi ndị ọrụ bu mz. Uduh kwuru na Anambara na-edu ndị steeti ọzọ n'ịkwụ ụgwọ ọnwa.
 Ngalaba na-ahụ maka nchekwa okporo ụzọ ịkwalite mgbasa ozi ha iji nwee ekeresimesi na-enweghi ihe mgberede okporo ụzọ ọbụla.
 Ka ga-abịa
 Ndị omebe iwu mba ahụ na-ekwughachi nkwa ikwado ọsọ ọsọ nke mgbanwe nke ndị uwe ojii Naijiria. Mba China agbanweela mkpebi ya maka iji akụkụ ahu agụ na sayensị na ọgwụ ọdịnala
 Nọrọ na-ekiri
-ABUCHI/AMADI 14/11/2018
 Ndị omebe iwu ekwugharịla na ya ga-eme ngwangwa na ntuli aka ndị uwe ojii Nigeria
 Onye isi oche ndị omeiwu bụ Dkt.Bukola Saraki onye kwuputara nke a n'Abuja kwenyesiri ike na usoro iwu ahụ ga-enye aka ịmepụta ụlọ ọrụ uwe ojii na-anabata ndi na-akwụghachi ụgwọ ma dịkwuo mma maka ndị Nigeria, karịsịa na nsogbu ịma aka dị ugbu a, na-agbakwunye na ịkwado nchegba nke ndụ na ihe onwunwe nke ndị Nigeria ka bu nchegbu dị mkpa nke ndi isi ọgbakọ asatọ ahụ
 Dkt. Saraki kwuru na dị ka onye nnọchị anya ndi mmadụ, ndị oka ikpe ekwenyela na ọ dị mkpa ime ka ndị uwe ojii na-eme omume di mma iji gboo mkpa nchekwa.
 Onye isi oche ndị omeiwu kwukwara na iwu ahụ bụ iji mezie usoro dị ugbu a n'etiti kọmishọn ndị uwe ojii na ndị uwe ojii Naịjirịa
 Ọgbakwunyere na iwu a ga-ewepụta ngalaba ndị uwe ojii n'ọkwa steeti, iji hụ na ọha na eze so n'ọrụ nchekwa.
 Onye isi oche otu sinet kwukwara na ọ ga-ahụ na ngalaba nke ndị uwe ojii steeti nke ga-ahụ maka njigide mmekọrita, ịkwalite nkwukọrịta na iwulite mmekọrịta n'etiti ndị obodo na ndị uwe ojii
-PUNCH/DENNIS/ABUCHI/AMADI 14/11/2018
 Onye na-ekwuchitere ụlọ omeba iwu steeti okaiwu Rita Maduagwu kwuru na ndị omebe iwu steeti ahụ etinyela aka n'ịchọpụta iwu dị mma ga-agbaso mmepe obodo niile.
 Ọ masiri obi ike a mgbe ọnọ n'isi ikpe ụnyahụ n'ọka.
 Onye nzukọ ụlọ ome iwu bụ Chukwuemeka Modilim noburu ebe a.
 N'ịnabata ndị ọka ikpe gara ezumike, onye ọka ikpe ahụ jara ndị omeiwu mma iji ezumike ahụ malịte ọrụ dị mma na ngalaba ha dị iche iche ebe akaebe na-esite n'mpaghara obodo ha dị iche iche.
 O toro ịnụ ọkụ n'obi nke kọmitii dị iche iche nke ụlọ ọrụ ha ji arụ ọrụ na ministri na ụlọ ọrụ ndị ọzọ iji kwadoo ezi ọchịchị
 Onye omebe iwu mbu nke steeti ahụ bụ onye kwupụtara mkpebi nke ụlọ omeiwu ka ọ gaa n'ihu na arụ ọrụ ya na ndi na-achi nke gọọmentị maka mkpokota odimma nke ndi a na-achi.  O kwuputara n'ụlọ ikpe dị n'okpuru  ya bụ nke nwere udo na ịdị n'otu kachasị n'etiti ndị omebe iwu.
-MODILIM/DENNIS/ABUCHI/AMADI 14/11/2018
 Onye isi mahadum Paul dị n'ọka na nnukwu ụkọchukwu nke mpaghara Enugu bụ Emmanuel Chukwuma, ehiwala ọgbakọ ndị ọchịchị nke atọ nke mahadum ahụ.
 Na-ekwu okwu n'oge ihe omume ahụ, onye ụkọchukwu bụ Chukwuma, kelere ndị otu kansụlụ maka ikwere ijere Chineke na mmadu ozi site na mahadum.
 Nnukwu ụkọchukwu Chukwuma kwuru na a hooro ndị otu ọchịchị nke ọma na mpaghara ise ụka Ekliziastis nke nwe mahadum ahụ wee gosipụta nchekwube n'ụzọ ha ga-esi ruzuo ọrụ na enyemaka ndị ụka, ha ga-ebulite mahadum ahụ gaa n'ọkwa di elu
@@ -201,31 +142,26 @@ Na mbido na nkwuputa, onyeisi oche oge ndi isi nke mahadum ahụ bụ ọkaikpe 
 Na mbụ n'okwu ya, osote onyeisi mahadum bụ ọkammụta Uche Isiugo-Abanihe kelere onye nwe mahadum ahụ maka ọrụ ya, onye o kwuru na ya amatala nsogbu ndị chere mahadum ahụ ihu ma gosipụta njikere ya ibu onye ndu dị mma.
 Osote onyeisi mahadum kelere nnukwu ukọchukwu nke dayọsis dị n'ọka bụ Alexander Ibezim maka nkwado ya na mahadum.
 N'okwu nnabata ya, ọ bụ onye isi out ndị na-achị achị nakwa onye isi mahadum bụ Chris Okoye kelere kọleji ndị jikọtara otu ndị nnukwu ukọchukwu ọnụ maka ihu ha nkwadobe maka ọrụ a dị mkpa ma kwe nkwa na ha ga-ebuli mahadum ahụ elu.
-PR/PAUL mahaduum/DNCA/DENNIS/ABUCHI/AMADI 14/11/2018
 Akụkọ azụmahịa
 Ụlọ ọrụ na-ahụ maka ụgwọ na-ekwu na gọọmentị etiti gbaziri ego ruru ijeri naira iri atọ na abụọ na afọ 2017 iji kwado mmefu ego di na bọgetị
 Di ka ụlọ ọrụ na-ahụ maka iji ụgwọ ji agbapụta, a gbaziri ego ahụ dum site na ahịa ụlọ na nke mba ọzọ
 Mkpọkọta nke ijeri puku ijeri abụọ, narị abụọ na iri abụọ na out na nde iri asaa na asaa na nde iri asaa na asaa, nwere ijeri ijeri na iri isii na asaa na nde ise na ijeri abụọ na narị abụọ na iri ise na anọ na nde abụọ na ijeri naira asaa site na iwu mba ofesi na isi ụlọ azụlitere n'otu n'otu iji kwado mmefu ego 2017.
 Ntinye aka nke gọọmentị etiti juputara na azụmaahịa mbụ ka gọọmentị gara n'ihu na-enye nkeko iji kwado mmebi mmefu ego na mmezi oke n'ọrụ ndị ọzọ
-14/11/2018 PUNCH/DENNIS.ABUCHI/AMADI
 Mba China agbanweela mkpebi ya iji bulie mmachibido iwu afọ iri abụọ na ise n'iji mpaghara rhino na agụ na sayensị na ọgwụ ọdịnala mgbe mkpu sitere na ndị na-akwado gburugburu
 Mmachi atọ, mbubata na mbupụ nke rhino, agụ na ngwa ahịa ha. Ire, Izu, Ibu na nzipu nke rhino, agụ na ihe ha. Na ojiji mpi rhino na ọkpụkpụ agụ were gwoo ọgwụ ga-anọ
 Ekpebila mkpebi a machibidoro iwu a mgbe nyocha gara, gọọmentị ga-ahazi mkpọsa ngwa ahịa pụrụ iche iji gbado anya leba anya n'ụzọ megidere iwu ahịa nzuzo nke rhino, agu na ngwa ahịa ha.
 Dika akụkọ a siri kwuo, gọọmentị China agbanwebeghị mkpebi ya na nchedo anụ ọhịa, ọ gaghị eme ka ọ kwụsị ịkwụsị azụmahịa nzu Rhino, Ago na ngwa ahịa ha na mpụ ndị ọzọ.
 A ga-echeta na mba China kwuputara n'ọnwa gara aga na ọ ga-agbanwe mmachibido iji mpaghara ahụ Rhino na Akwara maka nzube ahụike na sayensị
-ALJ/DENNIS/ABUCHI/AMADI 14/11/20o18
 Ụlọ mgbaasa ozi Anambara dị n'ọka
 Iji kwusị ozi a, nke a bụ ozi pụrụ iche
 Nchekwa nke ndụ na ihe ndị ọzọ dị na Steeti dị n'elu isi ọchịchị Willie Obiano
 Maka inata ozi gwangwa n'oge mpu ma o bu oge ihe mgberede daputara, kpoo akara ekwentia 0-7-0-3-9-1-9-4-3-3-2 ebe obula ị no na mpaghara ọ bụla nke Steeti iji nweta nleba anya ozugbo
 Ọzọ 0-7-0-3-9-1-9-4-3-3-2
-ABUCHI/AMADI 14/11/2018
 Ụlọ mgbasa ọzị dị n'Anambara
 Cheta na inwere ike ige ABS 88.5FM site n'akụkụ ọ bụla nke ụwa site na njikọ ndị a
 www.ABSRADIOTV.COM
 Na-ebudata 'ụda' na redio
 soro anyị na TWITTER@ ABSRADIOTV
-14/11/2018 ABUCHI/AMADI
 Ụlọ ntaakụkọ Anambara
 Ugbua isi ahuru kpuru okpu
 Onye isi ọrụ Maazị Uduh kwuru na Anambara na-edu ọtụtụ  steeti na ịkwụ ụgwọ ọnwa. Ọmalitere nkea mgbe  ọ na-anata nzipu akpa osikapa ga-ekenye ndị ọrụ gọọmentị Steeti.
@@ -240,15 +176,13 @@ Ndị dịbịa bekee na-akwado ndị nne ka ha na-enye umu ha sọ ara ruo ọn
 CBN keere ndị ọrụ ugbo ego karịrị bilionu iri ise na ise ịjị kwadoo mmeputa ihe oriri.
 Ode akwụkwọ otu jịkọrọ mba ụwa ọnụ bu Guterres na-akpoku ka akwụsị ịlụ ọgụ na Syrian nke bụ mkpebi nke mpaghara ha na-arụ ọrụ nchekwa
 Nkọwapụta na-aga: Njịrịmara ezigbo onye ndu nwere ọhụụ
-NJIDE/IFY26/2/18.
 Ụlọ ntaakụkọ Anambara dị n'ọka
 Tụpụ akọ akụkọ a n'uju, nkea bụ ozi di mkpa
 Ichekwa ndu na ihe onwunwe na steeti bụ ihe kachasị dị mkpa n'ọchịchị Willie Obiano
 maka ịnata ozi gwangwa n'oge mpụ ma ọ bụ oge ihe mgberede dapụtara, kpọọ akara ekwentia 0-7-0-3-9-1-9-4-3-3-2 ebe ọbụla ị nọ
 ọzọ 0-7-0-3-9-1-9-4-3-3-2
-26/2/2018 NJIDE/IFY.
 Gọọmentị steeti na-agba mbọ imepekwu okporo ụzọ na mpaghara ndị ọrụ ugbo nke steeti iji mee ka ọ bawanye.
-Gọvanọ Willie Obiano gosipụtara nke a mgbe o nyochara ọrụ ọwụwa ụzọ nke kilomita ise ahụ si ụzọ St. Anthony nke Padua ruo Ugwu ọdụ Udala /ụzọ ahịa Eke , Igbariam.
+Gọvanọ Willie Obiano gosipụtara nke a mgbe o nyochara ọrụ ọwụwa ụzọ nke kilomita ise ahụ si ụzọ St. Anthony nke Padua ruo Ugwu ọdụ Udala ụzọ ahịa Eke , Igbariam.
 N'oge nyocha ahụ, a chọpụtara na okporo ụzọ nke enyefere afọ gara aga na ebidola ọrụ n'uju ebe ahụ.
 Mgbe oge nyocha a gara, gọvanọ Obiano kwuru na nrụcha ụzọ a ga-eweta mmepe nke obodo ndị n'akọ ọrụ ugbo na steeti
 Ọ makwara ọkwa na gọọmentị ga-emecha nrụnye ọkụ n'okporo ụzọ si ndịda Igbariam ruo mahaduum Chukwuemeka Odumegwu Ojukwu n'ime ọnwa abụọ
@@ -258,10 +192,8 @@ Kọmịshọna na-ahu maka akụrụngwa nke okporo ụzọ, arịa ụlọ na 
 Onye ọrụ ngo ahụ na-ahụ maka ọrụ ahụ bụ  Chief Neville Uchendu kpughere na gọvanọ Obiano enyela ha nkwado niile ha chọrọ iji rụchaa ọrụ a ma kwe kwa nkwa na ya ga-arụ ọrụ ndi mmadụ jị a maatụ.
 Onye ndu ọdịnala nke Igbariam bụ Igwe Kelly Nzekwe, kelere gọvanọ Obiano maka ịcheta ndị obodo ya ma masie ya obi ike na ha kwadoro ya.
 Ụfọdụ n'ime ndị obodo ahụ gụnyere Chief Celestine Mozie na Oriaku Ngozi Okeke mgbe ha na-ekele ha maka ọrụ ha na-arụ n'okporo ụzọ, kwuru na ha nweziri ike iwe ihe ubi ha ma kelee gọvanọ Obiano maka mmeso ọma o nwere n'ebe ha nọ.
-OFOMAH/JOY/GRACE/NJIDE/IFY26/2/18.
 Ị maara na mmiri ara abụghị naanị na ọ dị ọnụ ala ma dịkwa ọcha, kama, Onwere ihe niile nri nwata chọrọ ka o nwee maka ọgụgụ isi
 N'akukọ a, Ekwi Ajide lebara anya n'ihe mere ndị dịbịa bekee ji akwado ichu naani mmiri ara ruo ọnwa isii
-Olu
 Inye nwa naanị mmiri ara ruo ọnwa isii ma ọ bụ ruo ọnwa itoolu pụtara inye nwa naani mmiri ara na-enyeghi ya mmiri, ọgwụ ma ọ bụ ụdị nri ọ bụla.
 Inye nwa naani mmiri ara dịka dịbịa bekee  Cliff Okafor si kwuo, bụ nanị ụzọ e ji egbochi nje nakwa ịjịkọ nne na nwa
 O kwuru na ụmụ a na-enye mmiri ara na-aka eme nke ọma karịa ndị enyeghi mmiri ara, ndị ahụ na-abụ ndị ọjọọ
@@ -270,9 +202,7 @@ Dkt. Okafor dọrọ aka na ntị na ịnye nwata mmiri ara na abụghị nke mm
 N'aka ya, Odz. Maria Ejiofor bụ nọọsụ kwuru na inye ara bụ ụzọ kacha mma eji enye nwa nri. Mara na inye nwa ara na enye aka igbochido ụmụ ọhụrụ ọrịa
 Odz.
 Ejiofor kwadokwara ndị nne na-arụ ọrụ bekee, n'agbenyeghị ọrụ ha ka ha na-enye ụmụ ha mmiri ara iji mee ka ha na ha nwee ịdị n'otu
-UP SOT
 A na-adụ ọdụ na site n'ọnwa isii. A ga enwebata ụdị nri ndị ọzọ gbakwunyere mmiri ara ruo afọ abụọ
-COV/EKWLJOY/GRACE/NJIDE/IFY 26/2/18.
 Mmeghachi omume na-aga n'ihu banyere ihe ọjọọ mere ebe nwoke gburu ụmụ ya anọ, onye na-ejere ya ozi na onwe ya na  No 19 Ntueke Streeti, ala 10, Awada. Ebe ndị bi gburu gburu duru ndị mmadu ọdụ ka ha gosipụta nchegbu oge niile mgbe ha hụrụ ihe ndị dị ịtụnanya ma ọ bụ nụ mkpu arịrị na gburugburu ha.
 Ụfọdụ ndị bị gburugburu a gụnyere Meers Herbert Okolie, Nathaniel Obiefuna, Abuchi Chinedu na Emenike Alaneme kọwara ya dịka arụ, o kwuru na ọ ga-abụrịrị na nwoke a mere arụ a site na ndu mmụọ ọjọọ , na-agbakwunye na mkpu ụmụaka ahụ kwesiri ịdọrọ uche ndi agbata obi ha
 Odz.
@@ -280,17 +210,14 @@ Comfort Alaneme, onye ọzọ bị n'Awada meteere ezinụlọ a obi ebere kacha
 onye a pụrụ ịdabeere na okwu ya gwara ndị ABS na nwoke nkea si Imo steeti wee lụọ onye nọọsụ, bụ onye achụpụrụ na mba ofesi na omume ya doro anya na ọ bụ onye ezighi ezi nke nwere ike ịbu n'ihi nsi ụfọdụ enyere ya maka ịga ọrụ ọjọọ.
 Enwere ike icheta na nwoke ahụ gbụrụ ụmụ ya anọ, odibo ya, ma mesia gbuo onwe ya na Satọde n'izu gara aga.
 Mgbalị iji nweta nne ụmụaka ahụ bụkwa onye nọọsụ kuru afọ n'ala ka a gwara ABS na ndị ikwu ya kpọọrọ ya.
-RPT/ORANU/JOY/GRACE/NJIDE/IFY 26/2/18.
 Ndị sonyere na nkụzị ụbọchị abụọ n'Abakiliki, Ebonyi Steeti achọpụtala nruzighari nke echiche ndị isi ala na ọha mmadụ dịka nnukwu nzọụkwụ iji gosipụta mmezu nkwupụta pesent iri atọ na ise.
 Ndị na-ekwu okwu na ọgbakọ omumu ihea na-aga n'ihu nke isiokwu ya bụ 'Ọrụ nke ndị otu obodo na ndị mgbasa ozi iji nweta mmeputa zuru oke nke pesenti iri atọ na ise na ndịda nke mpaghara ọwụwa anyanwụ'. Chere na ọdịdị nwoke na-egbochi ụmụ nwanyị isonye tụọ alọ n'obodo.
 Otu onye n'ime ndị nkuzi, Nwa Eze Sam Ezeanyika  onye depụtara ihe mgbochi iji rụpụta ihe dị egwu nke gụnyere ịda ogbenye, enweghị ntụkwasị obi, mgbochi ọdịbendị na ihe otu ndọrọ ndọrọ ọchịchị, kwusiri ike na agụmakwụkwọ , ike ego na ikpughe mgbasa ozi nwere ike inyere ụmụ nwanyị aka inwe ohere ịbụ ndị isi
 Ọ kwara ụta na ọtụtụ mgbanwe na mgbanwe dị mma achọrọ na ndọrọ ndọrọ ọchịchị mba a anọghị ya n'ihi na ụmụ nwanyị nwere ike iweta ha pere mpe na ọkwa mkpebi kachasị elu
-26/2/18 DNCA/JOY/GRACE/NJIDE/IFY.
 Ụlọ ntaakụkọ Anambara dị n'ọka
 Akụkọ a n'abịara gị
 Site n'njịkọ ozi nke Anambara
 ụlọ ozisa ozi, Ọka
-26/2/2018 NJIDE/IFY.
 ụlọ ọrụ ozisa ozi, Anambara
 Ndịa bụ isi okwu kemgbe
 Gọọmentị steeti ezubere iwukwu okporo ụzọ na ọrụ ugbo
@@ -301,13 +228,11 @@ ka na-abịa
 CBN na-enye ndị ọrụ ugbo n'ofe mba a ego karịrị ijeri iri ise na ise ịjị kwadoo mmepụta ihe oriri.
 Onye odeakwụkwọ UN Guterres kpọrọ oku ka emee ngwa ngwa banyere mkpebi kansụl nchekwa maka ịkwụsị ịkwa mgbọ na Syrian.
 Nọrọ na-ekiri
-26/2/2018 NJIDE/IFY.
 Ngalaba na-ahụ maka ụlọ akụ mba Naịjirịa (CBN) adịla njikere ịgbasa obosara ya na-ahụ maka mbiri ego n'asụsụ bekee 'ABP' ji ijeri naira iri anọ na abụọ akwado maka ịzụ ọkụkọ
 Ka ọ dị ugbu a, CBN site na ABP enyela ndị ọrụ ugbo puku narị abụọ na iri ise ego ruru ijeri naira iri ise na ise. N'usoro ahụ emepụtara ọrụ nde atọ na iri ano na itoolu, ebe ọrụ puku nari asatọ na iri itoolu dị dairet, ọrụ nde abụọ na puku nari isii adịghị dairet
 Gọvanọ CBN mazi
 Godwin Emefiele kwupụtara nkea ebe a na-eme mmeme pụrụ iche nke akụmakụ n'Emere-Ile, Ondo Steeti.
 O ruturu aka na ahịhịa greenfield n'asụsụ bekee ka enye nnukwu aka ịzọchị ndolazu dị n'ikesa ihe emepụtara n'ụlọ ọrụ ozuzu ọkụkọ. Ọ dabakwara na mkpebi CBN ga-eme ka amịpụta ihe ubi dị n'ime ala, belata mbubata ihe ndị a ga-emenwu na Naịjirịa , ma si otu a nye aka chekwaa mgbanwe ego si mba ọzọ
-VANG/JOY/GRACE/NJIDE/IFY 26/2/18.
 Otu jịkọtara ndị ntaakụkọ Naịjirịa, agwala gọọmentị onye isi ala Muhammadu Buhari ka o lee anya nke abụọ n'ọgụ ya megidere nrụụ aka n'ihi nkwupụta na 'Transperensi Intanashonal' nke dobere Naịjirịa dịka mba nke abụọ kacha mebie n'ụwa niile.
 Dị ka akụkọ si kọọ, Naịjirịa gbara ndị nke otu nari na iri anọ na asatọ  n'ime mba otu nari na iri asatọ enyochara n'afọ 2017 n'uche maka nrụrụ aka na ntụle elele nrụrụ aka kwa afọ
 Ndekọ ntanetị gosiri na n'ime akara otu nari iji gosi kwụ ọtọ na-enweghi nrụrụ aka ọbula, Naịjirịa nwere akara iri abụọ na asaa
@@ -315,7 +240,6 @@ Na nkwupụta o nyefere ndị nta akụkọ NUJ kwupụtara nchegbu na ebe ndị
 Nkwupụta ahụ toro mgbalị nke gọọmentị nke onye isi ala  Muhammadu Buhari kemgbe o rigoro n'ọkwa ọ na-alụ ọgụ nrụrụ aka. Agbanyeghị, ha kpọrọ oku ka ndị ndu leba anya dị ukwuu iji nweta mgbanwe dị mkpa n'ọgụ a.
 Ha kpọkuru gọọmentị ka o mee ka ọkụ a na-enwu n'ime ya nakwa ndị so n'otu ndọrọ ndọrọ n'achịachị . Na ekwesighi inwe onye ọkụ a aghaghị erute
 Ndị otu ahụ kwuru na akụkọ nke otu na-ahu maka nrụrụ aka mba ụwa bụ mkpote ụra nyere gọọmentị nke na-atụkwasị onwe ya obi na mbuso agha ya megide nrụrụ aka ga-agbatikwu mbọ ya n'ịlụ ọgụ a
-MONIC/JOY/GRACE/NJIDE/IFY 26/2/18
 Akụkọ ntụrụndụ
 Otu akụkọ banyere ọnwụ na Dubai kpughere na onye ome ihe nkiri Bollywood Sridevi Kapoor nwụrụ n'ihe mgberede nke mmiri
 Onye na-eme ihe nkiri a dị afọ iri ise na anọ nke a maara dịka Sridevi nwuru n'ihe ịsa ahụ n'ụlọ ịsa ahụ na nkwari akụ ya mgbe ọ pụrụ mmụọ.
@@ -323,13 +247,11 @@ A kọọrọ na mbụ na ọ nwụrụ n'ihi njide obi mgbe ọ nọ n'agbamakw
 Ndi otu Bollywood, ndi egwuregwu na ndi isi ndọrọ ndọrọ ọchịchị egosila obi nwute na ọnwụ ya.
 Ogwe aka mgbasa ozi nke gọọmentị nke Dubai kwuru na nyocha ọnwụ ahụ wùbùrù
 Emechala ma mata ihe kpatara ọnwụ ahụ
-26/2/18 BBC/DAVID/JOY/GRACE/NJIDE/1FY
 Onye odeakwụkwọ ukwu nke otu jikọrọ mba ụwa bụ Antonio Guterres akpọọla oku ka emee ngwa ngwa maka mkpebi kansụl nchekwa maka ịkwụsị ịkwa mgbọ ụbọchị iri atọ na Syria.
 Mgbe ọ na-ekwu okwu na kansul kọmitii na-ahụ maka nchekwa mmadụ nke otu mba ụwa na Geneva, Switzerland, Guterres kọwara ọnọdụ ahụ dịka 'ọkụ mmụọ nọ n'ụwa' ka gọọmentị Syria na-aga n'ihu na-agba mgba na mkọsa nke ndị nnupụisi enwere.
 Guterres chetaara ndị otu niile oke n'ọrụ ha na mmekọrịta mmadụ n'ụwa na ikike ichedo ndị nkịtị na akụ na ụba ndị nkịtị oge niile.
 Okwu a na-abịa dịka ndị dibia bekee nọ na nnọchi anya akwụkwọ ahụ na-ebo gọọmentị ebubo ịmalite mbuso agha kloriin na obodo  AI-Shifaniyah ọwụwa anyanwụ Ghouta.
 Ndị na-ahụ maka nchekwa obodo Syria nke a makwaara dịka ndị okpu agha ọcha kwuru na ọ dịkarịa mpe, otu nwatakịrị nwụrụ n'ihi nkogbu ahụ.
-26/2/278 BBC/JOY/GRACE/NJIDE/IFY
 Eliela ozu Ezinne Maria Oyibo Okafor na be di ya nọ n'Adagbe Orofia dị n'Abagana.
 Ezinne Oyibo Okafor onye nwụrụ mgbe ọ gbara afọ iri asatọ bụ nne onye nhazi zonu Mashal pụrụ iche nke RS5 Enugwu ma burukwa osote onye isi oche chemba nke komesi di n'Aba bụ Dennis Okafor
 Misa olili ozu nke e mere na ụlọ ụka onye nsọ Francis nke Assisi dị n'Abagana dọtara ndị n'eme eme n'obodo gunyere onye isi ndị na-ahụ maka nchekwa okporo ụzọ RS5 nke Enugwu, osote onye isi ndị uwe ojii Samuel Obayemi onye du ndị isi ndị ọzọ na ndị ọrụ ndị ọzọ. Ndị n'eme ihe nkiri, ndị otu chemba Aba n'etiti ndị ọzọ bịara iso ezinụlọ Okafor gbaa mkpe.
@@ -340,69 +262,34 @@ Onye a maama n'ihi nkiri bụ Pete Edochie kwadoro ezinụlọ a ka ha tasie obi
 Ada nwanyị nwụrụ anwụ bụ odz. Florence Nwude, nne ha biri ndụ mịrị mkpụrụ ma hụ na ha nwetere agụmakwụkwọ n'agbanyeghi ọnwụ di ya. Na-ekwu si na iwu nke ekpere, ịrụsi ọrụ ike na nguzosi ike ga-adịgide n'okwu ha.
 Ka ọ na-ekele Chineke na ndị nyeere ha aka n'oge ha na-eru uju, Dennis Okafor kwuru na a ga-echeta nne ha maka obi ike ya na ntachị obi na ndụ ya.
 Onye ntaakụkọ bụ Amaka Chibuzor Okoye  kwuru na mgbaru bụ ihe kachasị e mere n'akwamozu ahụ.
-AMAKA/JOY/GRACE/NJIDE/IFY 26/2/18.
-Ụlọ ntakụkọ Anambara dị n'ọka
-Iji kwusị ozi a, nke a bụ ozi pụrụ iche
-Nchekwa nke ndụ na ihe ndị ọzọ dị na Steeti dị n'elu ihe a ga-eme n'ọchịchị Willie Obiano
-maka inata ozi gwangwa n'oge mpu ma o bu oge ihe mgberede daputara, kpoo akara ekwentia 0-7-0-3-9-1-9-4-3-3-2 ebe obula I no
-ọzọ 0-7-0-3-9-1-9-4-3-3-2
-NJIDE/FY 26/2/2018.
-Cheta na inwere ike ige ABS 88.
-5FM  n'akụkụ ọ bụla nke ụwa site na njikọ ndị: www.ABSRADIOTV.COM.
-ABSRADIOTV.
-COM.
-Nbudata "ụda .N REDIO" na ekwenti obula chọọ  ABS 88.5FM na ụlọ mgbasa ozi nke Anambara site n'akara @ Ww.FACEBOOK.COM/ABSRADIOTELESION
-Soro anyị na akara TWITTER@ ABSRADIOTV
-NJIDE/IFY 26/2/2018
-Ụlọ ntakụkọ Anambara dị n'ọka
-Ugbua, isi ahụrụ kpuru okpu
 Gọọmentị steeti ezubere iwu maka ịrụkwu ụzọ na mpaghara n'akọ ugbo nke steeti
 Ndị dibia bekee agbaala ndị nne ume ka ha n'enye ụmụ ha naanị mmiri ara ruo ọnwa isii
 CBN na-enye ndị ọrụ ugbo n'ofe mba a ego karịrị ijeri naira iri ise na ise ịjị kwadoo mmepụta ihe oriri.
 Ode akwụkwọ otu jịkọrọ mba ụwa ọnụ bụ Guterres na-akpọkụ ka akwụsị ịlụ ọgụ nke bụ mkpebi nke mpaghara ha na-arụ ọrụ nchekwa na Syria.
 Nke ahụ bụ njedebe nke akụkọ  NJIDEKA OKOYE na ndị otu nrụpụta haziri
-NJIDE/DFY 26/2/20187.
 Akwụkwọ akụkọ  maka 06:30 & 12:00 nke ehihe na WED 14TH NOV, 2018.
 Onye gụrụ akụkọ a bụ
 Onye isi ndị ọrụ bụ mz. Uduh kwuru na Anambara na-edu ndị steeti ọzọ n'ịkwụ ụgwọ ọnwa.
 Ndị ọrụ nchekwa ụzọ ga-ebuli mkpọsa mgbasa ozi ha iji nwee ekeresimesi na-enweghi ọghọm na steeti.
 Ndị omebe iwu ekwugharịla na ya ga-eme ngwangwa ngafe nke ndị uwe ojii Naịjirịa
 China agbanweela mkpebi ya maka iji akụkụ agụ na sayensị nakwa na ọgwụ ọdịnala
-Nkọwa dị na "ezinụlọ yana ọrịa shuga"
-14/11/2018 ABUCHI/AMADI.
-Ụlọ ntakụkọ Anambara dị n'ọka
-Tupu akọ akụkọ a n'uju, nkea bụ ozi dị mkpa
 Nchekwa nke ndụ na ihe ndị ọzọ dị na Steeti dị n'elu ihe a ga-eme n'ọchịchị Willie Obiano
-maka ịnata ozi gwangwa n'oge mpụ ma ọ bụ oge ihe mgberede dapụtara, kpọọ akara ekwentia 0-7-0-3-9-1-9-4-3-3-2 ebe ọbụla ị nọ
-Ọzọ 0-7-0-3-9-1-9-4-3-3-2 14/11/2018ABUCHI/AMADI
-Oge izizi aga ekesara ndị ọrụ gọọmentị nke steeti akpa osikapa na ekeresimesi erutala
-Onye isi ọrụ Mazị Harry Uduh natara ọkwa site n'aka onye enyemaka pụrụ iche nye gọvanọ n'ihe gbasara ego na odeakwụkwọ nke kọmitii na-ekenye aza e jikoro,  n'ụlọ ọrụ mazị Confident Azododị n'ọka.
-Onye ntaakụkọ bụ Ejike Abana gwakwuru anyị
-Olu
 Mgbe ha natara ozi ahụ onye isi ndị ọrụ kwusiri ike na ihea na-egosipụta nkwado gọvanọ Willie Obiano. Na-agbakwunye na kemgbe ozi ahụ bịara n'oge, ndị ọrụ Anambara niile ga-enweta osikapa otu ọnwa tupu ekeresimesi.
 Mazị Uduh bụ onye ọka iwu mgbe ọ na-enyere ndị ọchịchị Obiano aka ikwado ndị ọrụ, kelekwara gọvanọ maka ịdị mma ya.
 Na ụgwọ opekempe ọhụụ, Mazị Uduh kwuru na Anambara nọ n'isi ọtụtụ steeti ndị ọzọ ịkwụ ndị ọrụ ụgwọ ha na ụma.
-UP SOT
 N'oge mbu, mgbe a na-enyefe ozi ahụ,onye enyemaka pụrụ iche nye gọvanọ n'ihe gbasara ego na odeakwụkwọ nke kọmitii na-ekenye aza ejikọrọ ọnụ na gọọmentị steeti na-agbasi mbọ ike iji hụ na akwụchara ụgwọ niile eji n'izu mbụ nke ọnwa Disemba. Gụnyekwa inye nkwado, na-agbakwunye nkesa osikapa ga-amalite site n'ụbọchị iri abụọ na anọ nke ọnwa a.
-UP SOT
 Onye na-emepụta osikapa steeti Anambara bụ mazi Akai Egwuonwu  kwuru na ha enyochala ma kwado ogo ya na osikapa. Na-agba aka ebe na mkpụrụ ọbụla n'ime ya ka a kụrụ, gbute ma hazie na steeti.
-UP SOT
 A ga-echeta na gọvanọ Willie Obiano mere ka ikesa akpa osikapa nye ndị ọrụ gọọmentị bụrụ ọdịnala kwa afọ kemgbe  o bidoro ịchịkwa ya.
-COV/EJIKE ABANA/DENNIS/ABUCHI/AMADI 14/11/2018.
 Gọọmentị steeti ahụ akwadola ọzụzụ maka ndị ntaakụkọ na steeti ahụ
 Kọmịshọna n'ahụ maka ozi na mmụta oha na eze bụ mazị
 C-Don Adinuba kwupụtara nke a mgbe osote onye isi nke otu jikọrọ ndị ntaakụkọ dị n'Naịjirịa nke mpaghara C, Petrus Obi letara ya n'ụlọ ọrụ ya n'ọka
 Onye ntaakụkọ Ebele Ezeh nweere akụkọ a ebe a
-Olu
 Kọmịshọna Adinuba onye kwuru na gọvanọ Willie Obiano na-enwe ọzụzụ na nkwalite mmadụ dịka ihe dị mkpa, o kwenyesirikwara ike na ọgbakọ ahụ ga-abụ ihe omume ga na-aga n'ihu.
 N'ikwusi ike na enyemaka ego gọọmetị steeti na-enye ndị NUJ maka ezinụlọ ndị otu ha nwụrụ anwụ, kọmịshọna Adinuba kọwara Obiano dịka naanị gọvanọ n'afọ na-adịbeghị anya onye enwebeghị ihe mmekpa ahụ emebeghị onye ntaakụkọ ọbụla  n'ọchịchị ya
-UP SOT
 Na nzụkọ ndị nnọchi anya udo e mere n'Abiokwuta, Ogun Steeti ebe ndị e meriri nabatara mmeri e meriri ha ma kelee ndị mmeri. Kọmịshọna Adinuba kpọrọ ndị ndọrọ ndọrọ ọchịchị na ndị otu ọzọ ka ha mụta ihe n'aka ndị NUJ
 Na mbido okwu ya, osote onye isi oche mpaghara C nke otu NUJ mazị Obi kwuru na ha nọ na steeti ahụ dịka nleta ma too mmekọrịta dị n'etiti gọọmentị steeti na kansụl NUJ nke steeti, na-agwakwa ndị ntaakụkọ ka ha tinye uju mgbe ha n'arụ ọrụ ha.
-UP SOT
 N'ime ozi ekele, odeakwụkwọ NUJ na steeti ahụ bụ mazị Kenneth Oforma kọwara Obiano dịka gọvanọ kachasị bụrụ enyi igwe mgbasa ozi.
 Onye isi oche nke otu ndị ntaakụkọ nke mba Naịjirịa, mazị Emmanuel lfesinachi na odeakwụkwọ, mazị Emmanuel Udeagha so na ndị nnọchi anya ndị a
-RPT/EBELE EZEH/DENNIS/ABUCHI/AMADI 13/11/2018.
 Ndị ọrụ nchekwa ụzọ kwuru na ha ga ebuli mkpọsa mgbasa ozi ha iji nwee ekeresimesi na-enweghi ọghọm na steeti
 Onye isi ngalaba nke steeti bụ Sunday Ajayi kpuhere nke a n'mkparịta ụka ekwenti ya na Abuchi Nwozor
 Dịka mazị Ajayi si kọwaa, otu a ga-eje njem mgbasa ozi gaa n'ụlọ ụka, ụlọ akwụkwọ, ụlọ alakụba, na ogige ntụrụndụ iji mee ka ndị ọkwọ ụgbọ ala na ndị ọrụ ndị ọzọ n'okporo ụzọ mata mkpa ọ dị irube isi n'iwu okporo ụzọ na
@@ -411,28 +298,22 @@ Kọmịshọna steeti nke ndị nchekwa okporo ụzọ kwuru na ụlọ ọrụ
 Ọ dụrụ ndị ọkwọ ụgbọala ọdụ ka ha gbaa mbọ hụ na ụgbọala ha dị mma tupu ha agbaa okporo ụzọ, na-echetekwara ha mkpa ọ dị izere ọghọm dị na ịgbafe ụgbọ ọzọ n'ike na ibu ibu karịrị ha.
 Mazị Ajayi onye gosipụtara na ụlọ ọrụ na-ahụ maka nchekwa okporo ụzọ nke steeti ga-ebido mgbasa ozi kwụchịm na redio, ihe onyoonyo, gbasara iwu okporo ụzọ gwara ọha na eze ka ha kpachara anya mgbe niile.
 Nchekwa, dịka oke na ọrụ onye niile
-14/10/2018 INTV/ABUCHI/DENNIS/ABUCHI/AMADI.
 Ndị mba ụwa na-ahụta taa dịka ụbọchị ọrịa shuga
 Ndị otu ọkachamara nke mba niile na otu ahụike nke mba niile malitere n'afọ 1991, na nzaghachị ọnụ na mgbago n'ọnụ ọgụgụ ndị ọrịa shuga n'ụwa niile.
 N'ime akwụkwọ akụkọ a puru iche, Ekwi Ajide lebara anya n'etiti mmekọrita dị n'etiti ọrịa shuga na ọwụwa ọkpụkpụ.
-Olu
 Ụbọchị ọrịa shuga ụwa bụ ụbọchị edebere maka ịkụzị gbasara ọrịa shuga nke na-abịa n'abalị iri na anọ n'ọnwa Nọvemba kwa afọ
 Ọrịa shuga bụ ọrịa adighị ebufe ebufe nke nwere ụdị abụọ, nke mbu na nke abụọ. Ebe enwere ike igbochi ma gwọkwa nke abụọ, a gaghị egbochinwu nke mbu mana a ga-ejikwanwu ya site n'iji ọgwụ ịnsulin.
 Enwere oke mmekọrịta n'etiti ọrịa shuga na ịwa ọkpụkpụ dịka dịbịa bekee Amaechi Nwachukwu si kwuo. Ozugbo ọrịa shuga banyere nke mgbanwoju anya, e kwesịrị igbupụ ukwu o metutara iji chekwaa ndụ onye ọrịa.
 Ọ kwara akwa arịrị na ọtụtụ ndị mmadu amaghị ọnọdụ ahụike ha nke mere ha ji ebute ọrịa ahụ n'amaghị na ha bu ọrịa shuga.
 Dkt. Nwachukwu onye dọọrọ aka na ntị na ileli ọrịa shuga nwere ike ibute ọnwụ ma ọ bụ ịgbụpụ ukwu. Ọ kwadoro ndị mmadụ ka ha gaa lele ahụ ha mgbe niile ma debe ndụmọdụ dịbịa bekee ha nyere ha mgbe niile.
 Ụfọdụ ndị n'arịa ya gunyere odozi akụ Eucharia Okeke onye e gbupụ goro ukwu ya na odozi akụ Juliana Ogbaka duru ndị na arịa ọrịa a ka ha na erubere ndụmọdụ dịbịa bekee ha.
-UP SOT
 Ebe onye nlekọta odozi akụ Ngozi Nwosu gwara ndị na-elekọta ndị ọrịa shuga ka ha gosi ha ịhụnanya na nlekọta oge niile.
-UP SOT
 Isi okwu ụbọchị ọrịa shuga nke afọ gara aga bụ ihe dị iche iche na-emetuta ihe ize ndụ nke ọrịa shuga na nsogbu ya, isikowu nke afọ a bụ ezinụlọ na ọrịa shuga.
 Ọrịa shuga gbasara ezinaụlọ niile
-COV/EKWI/DENNIS/ABUCHI/AMADI 14/11/2018.
 Ụlọ ntakụkọ Anambara dị n'ọka
 Akụkọ ozi a n'abịara gị
 Site n'njịkọ ozi nke Anambara
 Ụlọ ntakụkọ dị n'ọka
-ABUCHI/AMADI 14/11/2018.
 Ndịa bụ isi okwu kemgbe
 Onye isi ndị ọrụ bụ mz. Uduh kwuru na Anambara na-edu ndị steeti ọzọ n'ịkwụ ụgwọ ọnwa.
 Ngalaba na-ahụ maka nchekwa okporo ụzọ ịkwalite mgbasa ozi ha iji nwee ekeresimesi na-enweghi ihe mgberede okporo ụzọ ọbụla na steeti.
@@ -440,21 +321,18 @@ Ka ga-abịa
 Ndị omebe iwu mba ahụ na-ekwughachi nkwa ịkwado ọsọ ọsọ mgbanwe nke ndị uwe ojii Naịjirịa.
 Mba China agbanweela mkpebi ya maka iji akụkụ ahu agụ na sayensị nakwa n'ọgwụ ọdịnala
 Nọọrọ na-ekiri
-ABUCHI/AMADI 14/11/2018.
 Ndị omebe iwu ekwugharịala na ya ga-eme ngwangwa na ntụlị aka ndị uwe ojii Naịjirịa
 Onye isi oche ndị omeiwu bụ Dkt.Bukola Saraki onye kwuputara nke a n'Abuja kwenyesiri ike na usoro iwu ahụ ga-enye aka ịmepụta ụlọ ọrụ uwe ojii na-anabata ndị na-akwụghachi ụgwọ ma dịkwuo mma maka ndị Naịjirịa, karịsịa na nsogbu ịma aka dị ugbu a, na-agbakwunye na ịkwado nchekwa nke ndụ na ihe onwunwe nke ndị Naịjirịa ka bụ nchegbu dị mkpa nke ndi isi ọgbakọ asatọ ahụ
 Dkt. Saraki kwuru na dịka onye nnọchị anya ndi mmadụ, ndị oka ikpe ekwenyela na ọ dị mkpa ime ka ndị uwe ojii na-eme omume di mma iji gboo mkpa nchekwa.
 Onye isi oche ndị omeiwu kwukwara na iwu ahụ bụ iji mezie usoro dị ugbu a n'etiti kọmishọn ndị uwe ojii na ndị uwe ojii Naịjirịa
 Ọgbakwunyere na iwu a ga-ewepụta ngalaba ndị uwe ojii n'ọkwa steeti, iji hụ na ọha na eze so n'ọrụ nchekwa.
 Onye isi oche otu sinet kwukwara na ọ ga-ahụ na ngalaba nke ndị uwe ojii steeti nkea ga-ahụ maka njigide mmekọrita, ịkwalite nkwukọrịta na iwulite mmekọrịta n'etiti ndị obodo na ndị uwe ojii
-PUNCH/DENNIS/ABUCHI/AMADI 14/11/2018
 Onye na-ekwuchitere ụlọ omeba iwu steeti okaiwu Rita Maduagwu kwuru na ndị omebe iwu steeti ahụ etinyela aka n'ịchọpụta iwu dị mma ga-agbaso mmepe obodo niile.
 Ọ masiri obi ike a mgbe ọnọ n'isi ikpe ụnyahụ n'ọka.
 Onye nzukọ ụlọ ome iwu bụ Chukwuemeka Modilim nobuuru ebe a.
 N'ịnabata ndị ọkaikpe gara ezumike, onye ọka ikpe ahụ jara ndị omeiwu mma iji ezumike ahụ malịte ọrụ dị mma na ngalaba ha dị iche iche ebe akaebe na-esite n'mpaghara obodo ha dị iche iche.
 O tooro ịnụ ọkụ n'obi nke kọmitii dị iche iche nke ụlọ ọrụ ha ji arụ ọrụ na ministri na ụlọ ọrụ ndị ọzọ iji kwadoo ezi ọchịchị
 Onye omebe iwu mbu nke steeti ahụ bụ onye kwupụtara mkpebi nke ụlọ omeiwu ka ọ gaa n'ihu na arụ ọrụ ya na ndi na-achi  gọọmentị maka mkpokota odimma nke ndi a na-achi.  O kwupụtara n'ụlọ ikpe dị n'okpuru  ya bụ nke nwere udo na ịdị n'otu kachasị n'etiti ndị omebe iwu.
-MODILIM/DENNIS/ABUCHI/AMADI 14/11/2018
 Onye isi mahadum Paul dị n'ọka na nnukwu ụkọchukwu nke mpaghara Enugwu bụ Emmanuel Chukwuma, ehiwala ọgbakọ ndị ọchịchị nke atọ nke mahadum ahụ.
 Na-ekwu okwu n'oge ihe omume ahụ, onye ụkọchukwu bụ Chukwuma, kelere ndị otu kansụlụ maka ikwere ijeere Chineke na mmadụ ozi site na mahadum.
 Nnukwu ụkọchukwu Chukwuma kwuru na a hooro ndị otu ọchịchị nke ọma na mpaghara ise ụka Ekliziastis nke nwe mahadum ahụ wee gosipụta nchekwube n'ụzọ ha ga-esi ruzuo ọrụ na enyemaka ndị ụka, ha ga-ebulite mahadum ahụ gaa n'ọkwa dị elu
@@ -462,20 +340,17 @@ Na mbido na nkwuputa, onyeisi oche oge ndị isi nke mahadum ahụ bụ ọkaikp
 Na mbụ n'okwu ya, osote onyeisi mahadum bụ ọkammụta Uche Isiugo-Abanihe kelere onye nwe mahadum ahụ maka ọrụ ya, onye o kwuru na ya amatala nsogbu ndị chere mahadum ahụ ihu ma gosipụta njikere ya ibu onye ndu dị mma.
 Osote onyeisi mahadum kelere nnukwu ukọchukwu nke dayọsis dị n'ọka bụ Alexander Ibezim maka nkwado ya na mahadum.
 N'okwu nnabata ya, ọ bụ onye isi otu ndị na-achị achị nakwa onye isi mahadum bụ Chris Okoye kelere kọleji ndị jikọtara otu ndị nnukwu ukọchukwu ọnụ maka ihu ha nkwadobe maka ọrụ a dị mkpa ma kwe nkwa na ha ga-ebuli mahadum ahụ elu.
-PR/ MAHADUM PAUL /DNCA/DENNIS/ABUCHI/AMADI 14/11/2018.
 Akụkọ azụmahịa
 Ụlọ ọrụ na-ahụ maka ụgwọ na-ekwu na gọọmentị etiti gbaziri ego ruru ijeri naira iri atọ na abụọ na afọ 2017 iji kwado mmefu ego di na bọgetị
 Dika ụlọ ọrụ na-ahụ maka iji ụgwọ ji agbapụta, a gbaziri ego ahụ dum site na ahịa ụlọ na nke mba ọzọ
 Mkpọkọta nke ijeri puku ijeri abụọ, narị abụọ na iri abụọ na otu na nde iri asaa na asaa, nwere ijeri ijeri na iri isii na asaa na nde ise na ijeri abụọ na narị abụọ na iri ise na anọ na nde abụọ na ijeri naira asaa site na iwu mba ofesi na isi ụlọ azụlitere n'otu n'otu iji kwado mmefu ego 2017.
 Ntinye aka nke gọọmentị etiti jupụtara na azụmaahịa mbụ ka gọọmentị gara n'ihu na-enye nkeko iji kwado mmebi mmefu ego na mmezi oke n'ọrụ ndị ọzọ
-14/11/2018 PUNCH/DENNIS.
 ABUCHI/AMADI
 Mba China agbanweela mkpebi ya iji bulie mmachibido iwu afọ iri abụọ na ise n'iji mpaghara rhino na agụ na sayensị nakwa n'ọgwụ ọdịnala mgbe mkpu sitere na ndị na-akwado gburugburu bịara.
 Mmachi atọ, mbubata na mbupụ nke rhino, agụ na ngwa ahịa ha. Ire, Izu, Ibu na nzipu nke rhino, agụ na ihe ha. Na ojiji mpi rhino na ọkpụkpụ agụ were gwoo ọgwụ ga-anọ
 Ekpebila mkpebi a machibidoro iwu a mgbe nyocha gara, gọọmentị ga-ahazi mkpọsa ngwa ahịa pụrụ iche iji gbado anya leba anya n'ụzọ megidere iwu ahịa nzuzo nke rhino, agu na ngwa ahịa ha.
 Dika akụkọ a siri kwuo, gọọmentị China agbanwebeghị mkpebi ya na nchedo anụ ọhịa, ọ gaghị eme ka ọ kwụsị ịkwụsị azụmahịa nzu Rhino, Agụ na ngwa ahịa ha na mpụ ndị ọzọ.
 A ga-echeta na mba China kwuputara n'ọnwa gara aga na ọ ga-agbanwe mmachibido iji mpaghara ahụ Rhino na Agụ maka nzube ahụike na sayensị
-ALJ/DENNIS/ABUCHI/AMADI 14/11/20o18.
 Ọ bụrụ na ụmụaka rie ihe ọ bụla ha huru, ndị agadi kwesịrị inwela ahụmahụ dị mma banyere ịnyefe ndụ kwesịrị ekwesi nye ụmụ ha.
 Olee uru a na-erite n'ọdịnihu? Gi nye ụmụ anyị ezigbo agụmakwụkwọ, ijikọ aka na ikpe na-ezighi ezi ma ọ bụ mpụ n'ụdị ọ bụla, nwere ike ịchekwa ụmụ anyị ka a ghara inwe mmekọahụ ma ọ bụ dinaa n'ike; ma mee ka anyị nwee olileanya maka ọdịnihu nke nrọ anyị. ”
 Ndị otu ahụ tụrụ alo ka a gbaa ndị ga-abụ otu okpukpe ume maka nke a nwere ike ịkwalite ihe ịga nke ọma ha n'alụmdi na nwunye; ndị nne na nna kwesịrị ịdọ ụmụ ha aka na ntị ịghara iji ekwentị; Naịjirịa kwesịrị itinye agụmakwụkwọ okpukpe dịka o kwesiri na ụlọ ọrụ anyị; na nne na nna ndị Alakụba kwesịrị inye ụmụ ha ọzụzụ zuru oke nke Islam, ọkachasị ụmụ nwaanyị, ma na-enyocha ụzọ ha si ele ụwa anya.
@@ -629,7 +504,6 @@ Danbatta kelekwara ndị na-eji telicom ahụ maka nkwadobe ha ma na-arịọ �
 Anyi na ebuso oria Lassa na oria Corona ọgụ. Achọrọ m ime ka obi sie gị ike na anyị enyochala ndị China niile nọ na steeti ahụ, ha enweghị ọrịa ugbu a.
 Ndị debanyere aha n'mkaprịta ụka nke ekwenti na mba ahụ gbara mkpesa 19,977 megide ndị na - ahụ maka igwe netwọk  (MNOs) n'etiti Jenụwarị na Ọktọba afọ a.
 ' Site na Jenụwarị ruo taa, anyị enyochala mmadụ ise si na steeti ahụ si China na ha niile nweghi ọrịa ahụ, " o kwuru
-Mkpesa ndị ahụ, nke a kọrọ gbasara ụzọ anọ raara onwe ya nye na ụlọ ọrụ na-ahu maka mkparịta ụka (NCC), metụtara ụgwọ ịgba ụgwọ; ebe nlegharị anya / nlekọta ndị ahịa; ogo ọrụ / ahụmịhe, nkwalite ahịa na mgbasa ozi, n'etiti ndị ọzọ.
 Okwu ịgba ụgwọ gụnyere mgbanwe a na-akọwaghị na ntinye akaụntụ yana enweghị ike ịgbanwe atụmatụ tarifụ.
 Banyere nlekọta ndị ahịa, ndị debanyere aha jụrụ ike ha jikọtara ọnụ maka enyemaka; ebubo ejighị ike ọrụ nke ndị ọrụ; nzaghachi na-ezighi ezi site n'aka ndị ọrụ ya na mwepụ ndị ọzọ.
 Banyere ogo ọrụ dị na olu banyere deta, ndị ọrụ ekwentị na-eme mkpesa maka nnyonye oku; enweghị ike ịnata oku; kpọọ ntụgharị; mgbochi; deta na-adịgide adịgide; mgbaàmà na-adịghị mma / ọ nweghị netwọk iji kọọ ole na ole.
