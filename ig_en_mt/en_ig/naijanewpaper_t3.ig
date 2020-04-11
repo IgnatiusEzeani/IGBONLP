@@ -1062,10 +1062,13 @@ Site na mmiri ozuzo na ide mmiri oge na-adịbeghị anya, enwere ike ikwenye �
 Enweghị adịmọcha ọbụla ma ọ bụ ọwa mmiri n'ọtụtụ ogige.
 Ndị mmadụ na-aga ụlọ mposi n'ime oghere maka enweghị ebe ha nwere ike iji rụọ ọrụ ma ugbu a ụlọ ọrụ jupụtara na ide mmiri, ọrịa ndị eji mmiri ebute dị ka ọgbụgbọ na-agbasa ngwa ngwa, "Batonon kwukwara.
 Ka ọ dị ugbu a, otu jịkọrọ mba na ndị mmekọ rịọrọ arịrịọ maka nde dọla 848 iji lebara mkpa ndị dị na ugwu ọwụwa anyanwụ Naịjirịa afọ a.
-Ihe dika ọnwa asatọ dị n'ime afọ ahụ aga, eritebeghị pasent 40 erughi .
-A na-achọ nkwado ngwa ngwa iji gwoo nde mmadụ 6.2  ezubere maka enyemaka mmadụ na 2019. Ndị mmadụ ga-anwụ ma ọ bụrụ na ha enwetaghị enyemaka ugbu a," Batonon kwuru.
+Ihe dika ọnwa asatọ dị n'ime afọ ahụ aga, eritebeghị pasent 40 n'ime ya.
+A na-achọ nkwado ngwa ngwa iji gwoo nde mmadụ 6.2 ezubere maka enyemaka mmadụ na 2019.
+Ndị mmadụ ga-anwụ ma ọ bụrụ na ha enwetaghị enyemaka ugbu a," Batonon kwuru.
 Ma, oke mmiri ozuzo na - enye ohere site n'aka ndị otu ndi agha gbabigoro ma buso ogige ndị mmadu agha.
-N'abalị Tuzdee (ọgọst 20) na Dika, nwanyị gbara ogbunigwe tụbara bọmbụ, gbuo onwe ya ma merụọ ndị nkịtị anọ ahụ. Nke a bụ nke mbu n'mpaghara ebe a na Disemba afọ 2018.
+N'abalị Tuzdee (ọgọst 20) na Dika, nwanyị gbara ogbunigwe tụbara bọmbụ, gbuo onwe ya ma merụọ ndị nkịtị anọ ahụ.
+Nke a bụ nke mbu n'mpaghara ebe a na Disemba afọ 2018.
+END-----------------------------------------------------------------------END
 RE: DSS na ụlọ ọkaịkpe nke ụbọchị isii n'ọnwa Disemba, ihe mere n'Abuja onye kọrọ ya bụ Lucky Ighoyota
 Mwakpo nke ụlọ ọrụ ndị ọkaịkpe wakporo na Fraịdee ka onye ọrụ ya bụ Omoyele Sowore na onye na - agbachitere ya, Olawale Bakare erughị awa iri abụọ na anọ ka enyere ha ohere mgbapụta bụ ihe kacha njọ na-akwado megide ikike ikpe nke gọọmentị. onye ọrụ ahụ egosipụtala nlelị maka ya.
 Na Satọde, Disemba 7, ka awa iri abụọ garachara, ụlọ ikpe ukwu ahụ, n'Abuja, Ngalaba Na-ahụ Maka Ọrụ kwuru banyere eziokwu n'ezie iji kwụsị aha ya mebiri emebi.
