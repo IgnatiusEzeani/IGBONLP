@@ -1068,8 +1068,8 @@ Ndị mmadụ ga-anwụ ma ọ bụrụ na ha enwetaghị enyemaka ugbu a," Bato
 Ma, oke mmiri ozuzo na - enye ohere site n'aka ndị otu ndi agha gbabigoro ma buso ogige ndị mmadu agha.
 N'abalị Tuzdee (ọgọst 20) na Dika, nwanyị gbara ogbunigwe tụbara bọmbụ, gbuo onwe ya ma merụọ ndị nkịtị anọ ahụ.
 Nke a bụ nke mbu n'mpaghara ebe a na Disemba afọ 2018.
+RE: DSS na Ụlọ Ọkaịkpe nke Ụbọchị Isii N'Ọnwa Disemba, ihe mere n'Abuja site n'aka Lucky Ighoyota
 END-----------------------------------------------------------------------END
-RE: DSS na ụlọ ọkaịkpe nke ụbọchị isii n'ọnwa Disemba, ihe mere n'Abuja onye kọrọ ya bụ Lucky Ighoyota
 Mwakpo nke ụlọ ọrụ ndị ọkaịkpe wakporo na Fraịdee ka onye ọrụ ya bụ Omoyele Sowore na onye na - agbachitere ya, Olawale Bakare erughị awa iri abụọ na anọ ka enyere ha ohere mgbapụta bụ ihe kacha njọ na-akwado megide ikike ikpe nke gọọmentị. onye ọrụ ahụ egosipụtala nlelị maka ya.
 Na Satọde, Disemba 7, ka awa iri abụọ garachara, ụlọ ikpe ukwu ahụ, n'Abuja, Ngalaba Na-ahụ Maka Ọrụ kwuru banyere eziokwu n'ezie iji kwụsị aha ya mebiri emebi.
 Ọ bụghị ihe ịtụnanya nye anyị ma ọ bụ ọha na eze, bụ ndị maara akụkọ ndị DSS nke nwere ọtụtụ akụkọ ụgha iji mepụta echiche ụgha ma ọ bụ nke na-eduhie eduhie.
@@ -1081,7 +1081,9 @@ Onye hụrụ ya anya na akụkọ mgbasa ozi nwere na ndị ọrụ DSS were iw
 Na akụkọ mgbasa ozi nke DSS, o boro ndị na-akwado Sowore ebubo na ha na-egbochi ya "njide efu." Mana n'eziokwu, mwakpo ahụ gosipụtara na ọ bụghị njide echere n'echiche.
 Ebe ọ bụ na Sowore pụtara n'ụlọ ikpe maka okwu a na DSS, ndị ọrụ agha na-arụ ọrụ n'ụlọ ikpe ahụ na Disemba 6 dị ọtụtụ karịa mgbe ọ bụla. Nke a bụ iji gosipụta na mwakpo ọzọ awakporo Sowore bụ mkpebi nke ọrụ ahụ kwudịrị tupu ọ tọhapụ ya na Disemba 5!
 N'okwu ndị DSS kwuru na ndị ọrụ ya anọghị n'ime ụlọ ikpe ahụ iji wee mepụta mwakpo ahụ, nyocha dị egwu na ihe nkiri ndị mgbasa ozi na ndị hụrụ ya kpughere gosiri na ụfọdụ ndị ọrụ ha na-eyighị uwe DSS nke akpọrọ aha otu na-adọkpụ Sowore na ala n'ime ogige.
-Otu onye n'ime ụmụ nwoke na-eje ozi n'ime ụlọ ikpe ahụ nke onye ọrụ ike Sowore nwere bụ Marshall. O yighị uwe ndị DSS mara akara. Ọ nọ na jaket ojii dịka a na-ahụ ya na ihe nkiri niile ana-ekesa.
+Otu onye n'ime ụmụ nwoke na-eje ozi n'ime ụlọ ikpe ahụ nke onye ọrụ ike Sowore nwere bụ Marshall. 
+O yighị uwe ndị DSS mara akara.
+Ọ nọ na jaket ojii dịka a na-ahụ ya na ihe nkiri niile ana-ekesa.
 Marshall bụ onye ọrụ DSS na-egbochi Sowore ka ọ ghara iso ndị nta akụkọ na-ekwu okwu oge ọ gara n'ụlọ ikpe.
 Ọzọkwa, ọ dị mma ịmara na Sowore mgbe ọ ka nọ n'ụlọ ikpe ahụ gwara otu Marshall na ọ bụ ihe ihere.
 N'ezie eziokwu a, o doro anya nke ukwuu na mgbe awa 24 nke ịgbachi nkịtị gbasara akwụkwụ ụlọ ikpe nke ndị DSS, n'ịzọ iwepụ aha ha mebiri emebi n'ihu ọha, ha ka nwere ike ghara imepụta 'amamịghe ụgha' nke na-enyere aka ịgbanwe.
