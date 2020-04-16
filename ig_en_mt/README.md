@@ -3,7 +3,7 @@
 # Igbo-English Machine Translation: An Evaluation Benchmark
 
 So far, this repository contains a collection of human corrected and validated Igbo monolingual data and human-translated Igbo-English sentence pairs for training machine translation systems as presented in this paper:
-[Igbo-English Machine Translation: An Evaluation Benchmark](https://arxiv.org/abs/2004.00648)). Work on the comparative experiments for the Ig-En MT baselines are still on-going and will be included soon. 
+[Igbo-English Machine Translation: An Evaluation Benchmark](https://arxiv.org/abs/2004.00648). Work on the comparative experiments for the Ig-En MT baselines are still on-going and will be included soon. 
 
 ## Repo Content:
 This repo contains both the **monolingual** and **parallell (Ig-En)** data:
