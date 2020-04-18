@@ -1126,21 +1126,26 @@ Naanị ịnụ ndị Oscars ka ha kwuru na ọ nwere ọtụtụ Bekee?
 Oke BS!
 N'ezie, adịghị m ele ndị Oscar anya ugbu a!
 Ha nwekwara ike gbanwee aha ahụ laghachị 'Asụsụ Ọzọ', otu onye twita, Steven Chuks kwuru.
-END-----------------------------------------------------------------------------------------END
-
-
-Ndị ntọakụkọ Sahara
-Mkpụchị: iji naanị N70, ị Pụrụ ịzụta ihe nkiri nke 'Genevive' obi agụ '
-Ntụnye okwu 0
-ọnwa iri gara aga
-Onye ọzọ na-eji Twitter eme ihe, Danielle kwuru, sị, "Ihe ụfọdụ gbasara ihe a adịghị mma. Ewepụrụ ihe nkiri ahụ n'ihi na ọ kacha n'asụsụ Bekee. Ka ọ dị ugbu a, asụsụ gọọmentị Naịjirịa bụ .... Bekee. "
+Onye ọzọ na-eji Twitter eme ihe, Danielle kwuru, sị, "Ihe ụfọdụ gbasara ihe a adịghị mma.
+Ewepụrụ ihe nkiri ahụ n'ihi na ọ kacha n'asụsụ Bekee .
+Ka ọ dị ugbu a, asụsụ gọọmentị Naịjirịa bụ Bekee. "
 Icheta amụma Tai Solarin Site Edwin Madunagu
-O putara na onweghị ihe gbanwegogoro n'usoro ọrụ ndị mmadụ na Naịjirịa ma ọ bụ n'ime aka ndị akaịpa na ya, ma ọ bụ ha abụọ? Kedụ ka ndị otu ọchịchị onye isi ala Naịjirịa siri nwee ike ịmegharị onwe ha oge ụfọdụ, wepụta ụdị nhazi ma na-aga n'ihu? N'akụkụ dị iche, gịnị kpatara na ọ kaghị enwe ike ịkwatu ndị isi ọchịchị onye isi ala Naịjirịa, dị ka otu, ma ọ bụ tufuo ya dịka ike ọchịchị kacha ike?
-Edwin Madunagu
-Ntụli aka nke 2019 nke Naịjirịa, karịsịa asọmpi gọvanọ n'oge na-adịbeghị anya na steeti Kogi na Bayelsa, ejirila ike weghachite amụma nke onye ikpe azụ Tai Solarin mara  ihe dị ka afọ 40 gara aga na ntụli aka nke 1979. N'ezie, ịcheta amụma a na-echetakwa azịza m n'ebe m nọ n'oge ahụ. Adị m afọ 33 mgbe ahụ.
-Ọ dị mma ịmalite akụkọ ọ bụla m nwere ike ịkọ ebe a site na iwebata Tai Solarin na ndị na-eto eto ndị Naịjirịa na-amụghị amụ mgbe amara amụma ahụ. Ndi Naịjirịa ugbu a mejupụtara ọnụ ọgụgụ ndị mmadụ nọ n'Naịjirịa. Tai Solarin bụ nwa nwoke ama ama nke Naịjirịa si mpaghara ọdịda-ọwụwa anyanwụ nke Naịjirịa nke bụ onye ọrụ ụwa na agụmakwụkwọ, mana ọrụ mmadụ ya enweghị atụ n'ihi  (ya bụ n'echiche na omume) nnagide ya, obi isi ike ya na oke mmụta ya. 
-Tai Solarin abụghị onye Marxist, ọ bụghị onye komunizim ọ bụghị onye ọrụ site na idobe otu. Mana ọ bụ onye mkwado ndụ. Na ndọrọndọrọ ọchịchị a ga-akọwa ya dịka onye na - aga n'ihu, mana ọbụghị onye na - aga n'ihu ugbua ndị Naịjirịa 'na-aga n'ihu'. Tai Solarin bụ ihe na-agagharị n'echiche mbụ nke ịbụ onye nọ na mpaghara echiche ndị akaịkpa na ụwa ndọrọ ndọrọ ọchịchị. Ọ bụ ya n'ozuzu ya, "onye nkatọ mmekọrịta mmadụ na ibe ya" na ọkachasị, ọ bụ onye edemede akụkọ pụrụ iche, ama ama ma na-akwanyere ùgwù.
-Ugbu a ruo n'isi mmalite nke mpempe a. Anyị nwere ike icheta na ọchịchị onye kwuo uche nke abụọ  Naịjirịa malitere na Ọktọba 1, 1979 mgbe afọ 13 (1966-1979) nke ọchịchị ndị agha nke hụrụ agha obodo. Na ntuli aka niile emere na ọchịchị onye kwuo uche ya, Shehu Shagari nke otu mba Naịjirịa (NPN) pụtara dị ka (Ezekutiv) onye isi ala na Obafemi Awolowo nke otu njịkọ Naịjirịa (UPN) pụtara dịka onye ntuli aka nke abụọ. Nsonaazụ ya bụ, ịsị ntakịrị, oke esemokwu — dịka anyị nwere ike icheta ma ọ bụ mee nyocha. Mana ihe dị ebe a abụghị esemokwu nke nsonaazụ onye isi ala ma ọ bụ akụkụ nke Tai Solarin kwadoro. (Ọ bụ onye otu n'ime ndị UPN). Kama, anyị na-echebara amụma ya izu ise ga-abanye na mba ọhụrụ.
+O putara na onweghị ihe gbanwegogoro n'usoro ọrụ ndị mmadụ na Naịjirịa ma ọ bụ n'ime aka ndị akaịpa na ya, ma ọ bụ ha abụọ?
+Kedụ ka ndị otu ọchịchị onye isi ala Naịjirịa siri nwee ike ịmegharị onwe ha oge ụfọdụ, wepụta ụdị nhazi ma na-aga n'ihu?
+N'akụkụ dị iche, gịnị kpatara na ọ kaghị enwe ike ịkwatu ndị isi ọchịchị onye isi ala Naịjirịa, dị ka otu, ma ọ bụ tufuo ya dịka ike ọchịchị kacha ike?
+Ntụli aka nke 2019 nke Naịjirịa, karịsịa asọmpi gọvanọ n'oge na-adịbeghị anya na steeti Kogi na Bayelsa, ejirila ike weghachite amụma nke onye ikpe azụ Tai Solarin mara  ihe dị ka afọ 40 gara aga na ntụli aka nke 1979.
+N'ezie, ịcheta amụma a na-echetakwa azịza m n'ebe m nọ n'oge ahụ.
+Adị m afọ 33 mgbe ahụ.
+Ọ dị mma ịmalite akụkọ ọ bụla m nwere ike ịkọ ebe a site na iwebata Tai Solarin na ndị na-eto eto ndị Naịjirịa na-amụghị amụ mgbe amara amụma ahụ.
+Ndi Naịjirịa ugbu a mejupụtara ọnụ ọgụgụ ndị mmadụ nọ n'Naịjirịa.
+Tai Solarin bụ nwa nwoke ama ama nke Naịjirịa si mpaghara ọdịda-ọwụwa anyanwụ nke Naịjirịa nke bụ onye ọrụ ụwa na agụmakwụkwọ, mana ọrụ mmadụ ya enweghị atụ n'ihi  (ya bụ n'echiche na omume) nnagide ya, obi isi ike ya na oke mmụta ya. 
+Tai Solarin abụghị onye Marxist, ọ bụghị onye komunizim ọ bụghị onye ọrụ site na idobe otu.
+Mana ọ bụ onye mkwado ndụ.
+Na ndọrọndọrọ ọchịchị a ga-akọwa ya dịka onye na - aga n'ihu, mana ọbụghị onye na - aga n'ihu ugbua ndị Naịjirịa 'na-aga n'ihu'.
+Tai Solarin bụ ihe na-agagharị n'echiche mbụ nke ịbụ onye nọ na mpaghara echiche ndị akaịkpa na ụwa ndọrọ ndọrọ ọchịchị.
+Ọ bụ ya n'ozuzu ya, "onye nkatọ mmekọrịta mmadụ na ibe ya" na ọkachasị, ọ bụ onye edemede akụkọ pụrụ iche, ama ama ma na-akwanyere ùgwù.
+Ugbu a ruo n'isi mmalite nke mpempe a.
+Anyị nwere ike icheta na ọchịchị onye kwuo uche nke abụọ  Naịjirịa malitere na Ọktọba 1, 1979 mgbe afọ 13 (1966-1979) nke ọchịchị ndị agha nke hụrụ agha obodo. Na ntuli aka niile emere na ọchịchị onye kwuo uche ya, Shehu Shagari nke otu mba Naịjirịa (NPN) pụtara dị ka (Ezekutiv) onye isi ala na Obafemi Awolowo nke otu njịkọ Naịjirịa (UPN) pụtara dịka onye ntuli aka nke abụọ. Nsonaazụ ya bụ, ịsị ntakịrị, oke esemokwu — dịka anyị nwere ike icheta ma ọ bụ mee nyocha. Mana ihe dị ebe a abụghị esemokwu nke nsonaazụ onye isi ala ma ọ bụ akụkụ nke Tai Solarin kwadoro. (Ọ bụ onye otu n'ime ndị UPN). Kama, anyị na-echebara amụma ya izu ise ga-abanye na mba ọhụrụ.
 Na Nọvemba 4, 1979, ụbọchị 34 ka e hibechara Onye isi ala Shehu Shagari, mbipụta Sọnde nke akwụkwọ akụkọ ikpe bụ otu nke Tai Solarin kpọrọ aha oche Onye isi ezuuru . N'ime ya, onye edemede ahụ dere, sị: 'Ọ bụrụ na gọọmentị a ga-adị afọ anọ… NPN ga-anọ etinyere onwe ya dịka otu Ọchịchị ebe niile, na UPN, GNPP, NPP na PRP ga-ebibikwa. ma ndi otu ya - o bidola - na ihe omumu. Ntụli aka nke afọ 1983 ga-adị n'etiti NPN na otu mgbanwe, ebe ọ mụrụ banyere NPN wee bụrụ ọchịchị maara nke ọma ihe ọ ga-eme itinye onye NPN maka onye isi ala. A ga-enwe ọgba aghara na ụdọ mba ahụ. Mgbe ahụ ọgbaghara n'etiti ndị shark. Anyị onwe anyị, ndị nkịtị, ga-akwụrịrị ụgwọ dị ka ndị a na-enye ụgwọ.
 Ihe m kwuru banyere amụma a bụ ihe ozugbo - dịka a tụrụ anya n'oge ahụ. Ọ pụtara na mbipụta nke akwụkwọ akụkọ nke Naịjirịa, akwụkwọ akụkọ kwa ụbọchị nke gọọmentị Cross River dere ma bipụta ya. Edegharịrị nkwupụta ahụ ma tinye ya na ederede okwu nkuzi m kwuru na Mahadum Ife (Mahadum Obafemi Awolowo ugbu a) na Nọvemba 1980 n'okpuru nkwado nke ụlọ Akwụkwọ Ndị Ọzụzụ Ndị Mmụta (ALPS) n'oge emume ncheta nke 31 nke ogbugbu ndị na-egwu ala Naịjirịa na ndagwurugwu Iva Valley, Enugwu, site n'aka ndị uwe ojii. Ma mesịa, na Mee 1981, ekwupụtara nkọwa a n'akwụkwọ nke si na nkuzi ahụ. Okwu nkuzi a yana akwụkwọ nke si na ya pụta bụ aha akpọrọ: oganihu mmadụ na iro Ya: Mgba maka usoro mmekọrịta mmadụ na ibe ya karị na Naịjirịa.
 N'akwụkwọ ahụ, ekwuru m, "Amụma Tai Solarin bụ ihe pụrụ iche n'ụzọ abụọ. Na mbu, Tai Solarin na-ebu amụma banyere mwepu na mbibi nke otu ya, UPN. N'ebe nke abụọ ọ na-ebu amụma na ọ ga-achọ ndị otu mgbanwe iji chụpụ NPN n'ike: ụdị amụma na-esitekarị na ngagharị iwe abụghị nke na-emesapụ aka. Anyị nwere ike ileghara ọnọdụ Tai Solarin anya - maka otu mgbanwe, mgbe ọ na-apụta, ọ gaghị agha dịka iwu nke ndị iro nke ọganiihu siri dị. Mana anyị kwenyere kpam kpam na NPN, dịka ndị otu ndọrọ ndọrọ ọchịchị, bụ taa ọgbakọ kacha mma nke ndọrọndọrọ ọchịchị Naịjirịa na ngosipụta ziri ezi gbasara ọdịmma ndị Naịjirịa. Ọ bụrụhaala na usoro ọdịmma ọha mmadụ ka ga-anọ ogologo oge, NPN (ma ọ bụ anụ ọhụrụ ọ nwere ike ịmụ) ga-anọgide na-abụ nzukọ ndọrọ ndọrọ ọchịchị kachasị elu nke ndị ogaranya . '
