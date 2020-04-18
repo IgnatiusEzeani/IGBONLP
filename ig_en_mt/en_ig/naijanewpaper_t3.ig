@@ -1145,62 +1145,155 @@ Na ndọrọndọrọ ọchịchị a ga-akọwa ya dịka onye na - aga n'ihu, 
 Tai Solarin bụ ihe na-agagharị n'echiche mbụ nke ịbụ onye nọ na mpaghara echiche ndị akaịkpa na ụwa ndọrọ ndọrọ ọchịchị.
 Ọ bụ ya n'ozuzu ya, "onye nkatọ mmekọrịta mmadụ na ibe ya" na ọkachasị, ọ bụ onye edemede akụkọ pụrụ iche, ama ama ma na-akwanyere ùgwù.
 Ugbu a ruo n'isi mmalite nke mpempe a.
-Anyị nwere ike icheta na ọchịchị onye kwuo uche nke abụọ  Naịjirịa malitere na Ọktọba 1, 1979 mgbe afọ 13 (1966-1979) nke ọchịchị ndị agha nke hụrụ agha obodo. Na ntuli aka niile emere na ọchịchị onye kwuo uche ya, Shehu Shagari nke otu mba Naịjirịa (NPN) pụtara dị ka (Ezekutiv) onye isi ala na Obafemi Awolowo nke otu njịkọ Naịjirịa (UPN) pụtara dịka onye ntuli aka nke abụọ. Nsonaazụ ya bụ, ịsị ntakịrị, oke esemokwu — dịka anyị nwere ike icheta ma ọ bụ mee nyocha. Mana ihe dị ebe a abụghị esemokwu nke nsonaazụ onye isi ala ma ọ bụ akụkụ nke Tai Solarin kwadoro. (Ọ bụ onye otu n'ime ndị UPN). Kama, anyị na-echebara amụma ya izu ise ga-abanye na mba ọhụrụ.
-Na Nọvemba 4, 1979, ụbọchị 34 ka e hibechara Onye isi ala Shehu Shagari, mbipụta Sọnde nke akwụkwọ akụkọ ikpe bụ otu nke Tai Solarin kpọrọ aha oche Onye isi ezuuru . N'ime ya, onye edemede ahụ dere, sị: 'Ọ bụrụ na gọọmentị a ga-adị afọ anọ… NPN ga-anọ etinyere onwe ya dịka otu Ọchịchị ebe niile, na UPN, GNPP, NPP na PRP ga-ebibikwa. ma ndi otu ya - o bidola - na ihe omumu. Ntụli aka nke afọ 1983 ga-adị n'etiti NPN na otu mgbanwe, ebe ọ mụrụ banyere NPN wee bụrụ ọchịchị maara nke ọma ihe ọ ga-eme itinye onye NPN maka onye isi ala. A ga-enwe ọgba aghara na ụdọ mba ahụ. Mgbe ahụ ọgbaghara n'etiti ndị shark. Anyị onwe anyị, ndị nkịtị, ga-akwụrịrị ụgwọ dị ka ndị a na-enye ụgwọ.
-Ihe m kwuru banyere amụma a bụ ihe ozugbo - dịka a tụrụ anya n'oge ahụ. Ọ pụtara na mbipụta nke akwụkwọ akụkọ nke Naịjirịa, akwụkwọ akụkọ kwa ụbọchị nke gọọmentị Cross River dere ma bipụta ya. Edegharịrị nkwupụta ahụ ma tinye ya na ederede okwu nkuzi m kwuru na Mahadum Ife (Mahadum Obafemi Awolowo ugbu a) na Nọvemba 1980 n'okpuru nkwado nke ụlọ Akwụkwọ Ndị Ọzụzụ Ndị Mmụta (ALPS) n'oge emume ncheta nke 31 nke ogbugbu ndị na-egwu ala Naịjirịa na ndagwurugwu Iva Valley, Enugwu, site n'aka ndị uwe ojii. Ma mesịa, na Mee 1981, ekwupụtara nkọwa a n'akwụkwọ nke si na nkuzi ahụ. Okwu nkuzi a yana akwụkwọ nke si na ya pụta bụ aha akpọrọ: oganihu mmadụ na iro Ya: Mgba maka usoro mmekọrịta mmadụ na ibe ya karị na Naịjirịa.
-N'akwụkwọ ahụ, ekwuru m, "Amụma Tai Solarin bụ ihe pụrụ iche n'ụzọ abụọ. Na mbu, Tai Solarin na-ebu amụma banyere mwepu na mbibi nke otu ya, UPN. N'ebe nke abụọ ọ na-ebu amụma na ọ ga-achọ ndị otu mgbanwe iji chụpụ NPN n'ike: ụdị amụma na-esitekarị na ngagharị iwe abụghị nke na-emesapụ aka. Anyị nwere ike ileghara ọnọdụ Tai Solarin anya - maka otu mgbanwe, mgbe ọ na-apụta, ọ gaghị agha dịka iwu nke ndị iro nke ọganiihu siri dị. Mana anyị kwenyere kpam kpam na NPN, dịka ndị otu ndọrọ ndọrọ ọchịchị, bụ taa ọgbakọ kacha mma nke ndọrọndọrọ ọchịchị Naịjirịa na ngosipụta ziri ezi gbasara ọdịmma ndị Naịjirịa. Ọ bụrụhaala na usoro ọdịmma ọha mmadụ ka ga-anọ ogologo oge, NPN (ma ọ bụ anụ ọhụrụ ọ nwere ike ịmụ) ga-anọgide na-abụ nzukọ ndọrọ ndọrọ ọchịchị kachasị elu nke ndị ogaranya . '
-O si n'elu pụta na 'naanị ụlọ ọrụ na-agbanwe agbanwe, na-anọchite anya ezi ọchịchọ nke ọha mmadụ a ma ama (ndị ọrụ, ndị nkịtị, ụmụ akwụkwọ, wdg) na ịlụ ọgụ maka usoro mmekọrịta ọha na eze kpamkpam, nwere ike ịchụpụ NPN n'ike. Ruo ókè ahụ — na ruo naanị ọnụ ụzọ ahụ - anyị kwenyere Tai Solarin. Ma anyị adịghị enwe echiche enweghị nchekwube. Enweghị ike ịtụgharị mgbanwe site n'ọnọdụ ọjọọ. Ntughari - iji okwu Leon Trotsky na-emegide enweghị nchekwube na ụdị mbibi ime mmụọ ndị ọzọ. Nkwuputa okwu Tai Solarin sitere na eziokwu ahụ ọ kewara ndị mmadụ na ndị otu mgbanwe - ụdị nkewa dị n'etiti ndị mmadụ na ndị otu ndọrọ ndọrọ ọchịchị dị ugbu a. Naanị ndị ndu ha nwere ike ịme nghazigharị, mgbanwe dị otú ahụ chọrọ ụdị nchekwube kachasị elu na obi ike omume. '
-N'ileghachi anya ugbu a ihe 'afọ agbanweta' n'etiti Tai Solarin na onwe m, ọ na-akụ m n'enweghị m ike ịghọta na mbubata ya zuru oke. Tai Solarin kwuru na ọ bụ naanị otu mgbanwe nwere ike ịchụpụ NPN n'ike. Ekwenyere m ya ma mezie echiche ahụ site n'iji 'NPN' dochie 'NPN' ma ọ bụ ogologo anụ mmiri ọ nwere ike ịmụ '. Nke a na-egosi na enwere m 'ọkụ' nke NPN nwere ike bụrụ onye ọzọ - ma ọ bụ onye ọzọ ga - anọchi - mana agbanyeghị, 'anụ mmiri' (dịka isi iyi ndị agha) na-esite na NPN. Mana "ịcha ọkụ" ahụ achughị.
-O doro anya na echiche otu ahụ nyocha na ịkọ amụma Tai Solarin. Nke a bụ ihe kwere omume, ebe ọ bụ na ọ bụghị ndị otu Marx. Ma azịza m ezughị echiche m zuru ezu. Ka m kọwaa. Na ndoro-ndoro echiche nke ndọrọ ndọrọ ọchịchị, ọbụlagodi n'ọnọdụ nke anyị, okwu "ndị ọgaranya" na "onye isi ike" abụghị ndị agbanwere. Enweghị 'ikeketeorie' na 'ọkwa m' mere ka ọ pụta ìhè dịka obere-ọgaranya, ọbụlagodi ma ọ bụrụ na mgbape agba. ọbụrụ na mụ tinye echiche ziri ezi karie, m ga ekwupụta n'ụzọ na ihe m na-atụgharị bụ iwepu ndị akwụkwọ ikekarị ya dịka akwụkwọ, ọbụghị ndị otu ndọrọ-ndọrọ ọchịchị ya dịka ndị NPN.
-Mgbe ikwuru nke a, ajụjụ dị ugbu a bụ: Gini mere na ọ fọrọ obere ka ọ bụrụ afọ iri anọ, na-enwe oge - mgbe ọ bụla ntuli aka ma ọ bụ mgbanwe ọ bụla nke gọọmentị - nwere mmetụta dị m ka m soro ntụli aka ndị isi na 1979 na amụma Tai Solarin? Gini mere na agbanyeghị na mkparịta ụka nke ndị akaịpa Naịjirịa, ọ dịkarịa ala kemgbe 1979, na-aga-agharịrị na enweghị mgbagha nke otu Ree, otu ahụ apụtabeghị? Kedu ihe kpatara anyị ga - eji hụ na anyị na - emegharị otu echiche na atụmatụ a mgbe ngosipụta ọbara niile na nke ọrụ ugbo na - akpọ "ntụli aka"?
-O putara na onweghi ihe gbanwegogoro n'usoro ọrụ ndị mmadụ na Naịjirịa ma ọ bụ n'ime aka ndị akaịpa na ya, ma ọ bụ ha abụọ? Kedụ ka ndị otu ọchịchị onye isi ala Naịjirịa siri nwee ike ịhazi onwe ha oge ụfọdụ, wee were usoro nhazi ọhụụ wee gaa n'ihu na-achị ya? N'akụkụ dị iche, gịnị kpatara na ọ kaghị enwe ike ịkwatu ndị isi ọchịchị onye isi ala Naịjirịa, dị ka otu, ma ọ bụ tufuo ya dịka ike ọchịchị kacha ike?
+Anyị nwere ike icheta na ọchịchị onye kwuo uche nke abụọ  Naịjirịa malitere na Ọktọba 1, 1979 mgbe afọ 13 (1966-1979) nke ọchịchị ndị agha nke hụrụ agha obodo .
+Na ntuli aka niile emere na ọchịchị onye kwuo uche ya, Shehu Shagari nke otu mba Naịjirịa (NPN) pụtara dị ka (Ezekutiv) onye isi ala na Obafemi Awolowo nke otu njịkọ Naịjirịa (UPN) pụtara dịka onye ntuli aka nke abụọ.
+Nsonaazụ ya bụ, ịsị ntakịrị, oke esemokwu — dịka anyị nwere ike icheta ma ọ bụ mee nyocha.
+Mana ihe dị ebe a abụghị esemokwu nke nsonaazụ onye isi ala ma ọ bụ akụkụ nke Tai Solarin kwadoro.
+Ọ bụ onye otu n'ime ndị UPN .
+Kama, anyị na-echebara amụma ya izu ise ga-abanye na mba ọhụrụ.
+Na Nọvemba 4, 1979, ụbọchị 34 ka e hibechara Onye isi ala Shehu Shagari, mbipụta Sọnde nke akwụkwọ akụkọ ikpe bụ otu nke Tai Solarin kpọrọ aha oche Onye isi ezuuru .
+N'ime ya, onye edemede ahụ dere, sị: 'Ọ bụrụ na gọọmentị a ga-adị afọ anọ… NPN ga-anọ etinyere onwe ya dịka otu Ọchịchị ebe niile, na UPN, GNPP, NPP na PRP ga-ebibikwa ma ndi otu ya - o bidola - na ihe omumu.
+Ntụli aka nke afọ 1983 ga-adị n'etiti NPN na otu mgbanwe, ebe ọ mụrụ banyere NPN wee bụrụ ọchịchị maara nke ọma ihe ọ ga-eme itinye onye NPN maka onye isi ala.
+A ga-enwe ọgba aghara na ụdọ mba ahụ.
+Mgbe ahụ ọgbaghara n'etiti ndị shark.
+Anyị onwe anyị, ndị nkịtị, ga-akwụrịrị ụgwọ dị ka ndị a na-enye ụgwọ.
+Ihe m kwuru banyere amụma a bụ ihe ozugbo - dịka a tụrụ anya n'oge ahụ.
+Ọ pụtara na mbipụta nke akwụkwọ akụkọ nke Naịjirịa, akwụkwọ akụkọ kwa ụbọchị nke gọọmentị Cross River dere ma bipụta ya.
+Edegharịrị nkwupụta ahụ ma tinye ya na ederede okwu nkuzi m kwuru na Mahadum Ife (Mahadum Obafemi Awolowo ugbu a) na Nọvemba 1980 n'okpuru nkwado nke ụlọ Akwụkwọ Ndị Ọzụzụ Ndị Mmụta (ALPS) n'oge emume ncheta nke 31 nke ogbugbu ndị na-egwu ala Naịjirịa na ndagwurugwu Iva Valley, Enugwu, site n'aka ndị uwe ojii .
+Ma mesịa, na Mee 1981, ekwupụtara nkọwa a n'akwụkwọ nke si na nkuzi ahụ .
+Okwu nkuzi a yana akwụkwọ nke si na ya pụta bụ aha akpọrọ: oganihu mmadụ na iro Ya: Mgba maka usoro mmekọrịta mmadụ na ibe ya karị na Naịjirịa.
+N'akwụkwọ ahụ, ekwuru m, "Amụma Tai Solarin bụ ihe pụrụ iche n'ụzọ abụọ .
+Na mbu, Tai Solarin na-ebu amụma banyere mwepu na mbibi nke otu ya, UPN .
+N'ebe nke abụọ ọ na-ebu amụma na ọ ga-achọ ndị otu mgbanwe iji chụpụ NPN n'ike: ụdị amụma na-esitekarị na ngagharị iwe abụghị nke na-emesapụ aka .
+Anyị nwere ike ileghara ọnọdụ Tai Solarin anya - maka otu mgbanwe, mgbe ọ na-apụta, ọ gaghị agha dịka iwu nke ndị iro nke ọganiihu siri dị .
+Mana anyị kwenyere kpam kpam na NPN, dịka ndị otu ndọrọ ndọrọ ọchịchị, bụ taa ọgbakọ kacha mma nke ndọrọndọrọ ọchịchị Naịjirịa na ngosipụta ziri ezi gbasara ọdịmma ndị Naịjirịa .
+Ọ bụrụhaala na usoro ọdịmma ọha mmadụ ka ga-anọ ogologo oge, NPN (ma ọ bụ anụ ọhụrụ ọ nwere ike ịmụ) ga-anọgide na-abụ nzukọ ndọrọ ndọrọ ọchịchị kachasị elu nke ndị ogaranya  .
+O si n'elu pụta na 'naanị ụlọ ọrụ na-agbanwe agbanwe, na-anọchite anya ezi ọchịchọ nke ọha mmadụ a ma ama (ndị ọrụ, ndị nkịtị, ụmụ akwụkwọ, wdg) na ịlụ ọgụ maka usoro mmekọrịta ọha na eze kpamkpam, nwere ike ịchụpụ NPN n'ike .
+Ruo ókè ahụ — na ruo naanị ọnụ ụzọ ahụ - anyị kwenyere Tai Solarin .
+Ma anyị adịghị enwe echiche enweghị nchekwube .
+Enweghị ike ịtụgharị mgbanwe site n'ọnọdụ ọjọọ .
+Ntughari - iji okwu Leon Trotsky na-emegide enweghị nchekwube na ụdị mbibi ime mmụọ ndị ọzọ .
+Nkwuputa okwu Tai Solarin sitere na eziokwu ahụ ọ kewara ndị mmadụ na ndị otu mgbanwe - ụdị nkewa dị n'etiti ndị mmadụ na ndị otu ndọrọ ndọrọ ọchịchị dị ugbu a .
+Naanị ndị ndu ha nwere ike ịme nghazigharị, mgbanwe dị otú ahụ chọrọ ụdị nchekwube kachasị elu na obi ike omume .
+N'ileghachi anya ugbu a ihe 'afọ agbanweta' n'etiti Tai Solarin na onwe m, ọ na-akụ m n'enweghị m ike ịghọta na mbubata ya zuru oke .
+Tai Solarin kwuru na ọ bụ naanị otu mgbanwe nwere ike ịchụpụ NPN n'ike .
+Ekwenyere m ya ma mezie echiche ahụ site n'iji 'NPN' dochie 'NPN' ma ọ bụ ogologo anụ mmiri ọ nwere ike ịmụ ' .
+Nke a na-egosi na enwere m 'ọkụ' nke NPN nwere ike bụrụ onye ọzọ - ma ọ bụ onye ọzọ ga - anọchi - mana agbanyeghị, 'anụ mmiri' (dịka isi iyi ndị agha) na-esite na NPN .
+Mana "ịcha ọkụ" ahụ achughị.
+O doro anya na echiche otu ahụ nyocha na ịkọ amụma Tai Solarin .
+Nke a bụ ihe kwere omume, ebe ọ bụ na ọ bụghị ndị otu Marx .
+Ma azịza m ezughị echiche m zuru ezu .
+Ka m kọwaa .
+Na ndoro-ndoro echiche nke ndọrọ ndọrọ ọchịchị, ọbụlagodi n'ọnọdụ nke anyị, okwu "ndị ọgaranya" na "onye isi ike" abụghị ndị agbanwere .
+Enweghị 'ikeketeorie' na 'ọkwa m' mere ka ọ pụta ìhè dịka obere-ọgaranya, ọbụlagodi ma ọ bụrụ na mgbape agba .
+ọbụrụ na mụ tinye echiche ziri ezi karie, m ga ekwupụta n'ụzọ na ihe m na-atụgharị bụ iwepu ndị akwụkwọ ikekarị ya dịka akwụkwọ, ọbụghị ndị otu ndọrọ-ndọrọ ọchịchị ya dịka ndị NPN.
+Mgbe ikwuru nke a, ajụjụ dị ugbu a bụ: Gini mere na ọ fọrọ obere ka ọ bụrụ afọ iri anọ, na-enwe oge - mgbe ọ bụla ntuli aka ma ọ bụ mgbanwe ọ bụla nke gọọmentị - nwere mmetụta dị m ka m soro ntụli aka ndị isi na 1979 na amụma Tai Solarin ?
+Gini mere na agbanyeghị na mkparịta ụka nke ndị akaịpa Naịjirịa, ọ dịkarịa ala kemgbe 1979, na-aga-agharịrị na enweghị mgbagha nke otu Ree, otu ahụ apụtabeghị ?
+Kedu ihe kpatara anyị ga - eji hụ na anyị na - emegharị otu echiche na atụmatụ a mgbe ngosipụta ọbara niile na nke ọrụ ugbo na - akpọ "ntụli aka"?
+O putara na onweghi ihe gbanwegogoro n'usoro ọrụ ndị mmadụ na Naịjirịa ma ọ bụ n'ime aka ndị akaịpa na ya, ma ọ bụ ha abụọ ?
+Kedụ ka ndị otu ọchịchị onye isi ala Naịjirịa siri nwee ike ịhazi onwe ha oge ụfọdụ, wee were usoro nhazi ọhụụ wee gaa n'ihu na-achị ya ?
+N'akụkụ dị iche, gịnị kpatara na ọ kaghị enwe ike ịkwatu ndị isi ọchịchị onye isi ala Naịjirịa, dị ka otu, ma ọ bụ tufuo ya dịka ike ọchịchị kacha ike?
 Madunagu, onye na-ahụ maka mgbakọ na mwepụ na odeakụkọ, dere si Calabar, Cross River Steeti.
 Ntughari banyere agha Nzuzo na Ọganihu ndị Afrika Mmadụ Site na Phumlani Majozi
-N'adịghị ka afọ iri atọ gara aga, ụwa bụ ebe kachasị mma n'ịtụle ihe omimi niile nke mmepe mmadụ gụnyere mmepe akụ na ụba, ahụike, ịnweta agụmakwụkwọ, na ikike mmadụ. Mmụba a a na-enwe n'ihu bụ ihe a na-ahụtụbeghị mbụ n'akụkọ mmadụ. Onye ọrụ ibe m na ntọghapụ ndị Afrika, Alexander Hammond, arụwo ọrụ dị egwu na ọganihu mmadụ na ụwa maka ụlọ akwụkwọ Cato.
-N'agha, ọ bụ naanị mgbe Agha Nzuzo gasịrị ka anyị hụworo ọganihu pụrụ iche na teknọlọjị wee jupụta na ọnụego ịda ogbenye zuru ụwa ọnụ. Mana tupu ọdịda nke mgbidi Berlin, ụwa kewara. Ezie na Russia duuru otu Soviet na ụwa ime ka ụwa ghọọ paradaịs, United States (US) tinyere ego buru ibu iji kwụsị ebumnuche ndị otu Soviet. Mba abụọ a, Russia na United States, nwere echiche nkà ihe ọmụma ụwa dị iche; komunizim na ikeketeorie. N'ihi ọdịiche ha, ha abụọ jiri ọtụtụ akụ rụọ ọrụ iji bulie echiche ha n'akụkụ niile nke ụwa.
-Esemokwu nke echiche ndị a akpatawo ọgba aghara zuru ụwa ọnụ, nke na-emetụta ihe fọrọ nke nta ka ọ bụrụ mpaghara niile nke ụwa. Otutu ụlọ ọrụ dịka out jikọrọ mba ụwa United buru agha ebe ndị echiche ha nọ buru agha.
-N'oge ọgba aghara ahụ n'akụkọ ihe mere eme nke mmadụ, ọ dịghị onye ọ bụla n'ime anyị ritere uru; n'ezie, ihe kara njọ maka ọtụtụ mba na-emepe emepe, ebe ọnụọgụ ndọrọ ndọrọ ọchịchị ka ọkụ, akụkụ ya ụfọdụ, site na Agha Nzuzo. Taa, ọ dị mwute ikwu na ndị mmadụ na-echefukarị nsogbu nke esemokwu echiche ụwa niile nke were ọtụtụ afọ ime. O nwere ike ibute obere ncheta?
-N'ezie, Afrika bụ otu n'ime ala ndi agha. Ala nna m, ọdịda nke Afrika, bụ otu n'ime ndị ihe metụtara Agha Nzuzo. Otu n'ime ihe mere o jiri were anyị ogologo oge ịkwụsị ịkpa ókè agbụrụ bụ n'ihi na ike ụwa niile hụrụ mgba anyị na-alụ megide ịkpa ókè agbụrụ na agha oyi; Ndị Amerika lere Nelson Mandela dị ka onye ọchịchị Kọmunist, ha kwenyere na ndọrọ ndọrọ ọchịchị  ya, ndị kongres Afrika, nke Moscow kwadoro.
+N'adịghị ka afọ iri atọ gara aga, ụwa bụ ebe kachasị mma n'ịtụle ihe omimi niile nke mmepe mmadụ gụnyere mmepe akụ na ụba, ahụike, ịnweta agụmakwụkwọ, na ikike mmadụ .
+Mmụba a a na-enwe n'ihu bụ ihe a na-ahụtụbeghị mbụ n'akụkọ mmadụ .
+Onye ọrụ ibe m na ntọghapụ ndị Afrika, Alexander Hammond, arụwo ọrụ dị egwu na ọganihu mmadụ na ụwa maka ụlọ akwụkwọ Cato.
+N'agha, ọ bụ naanị mgbe Agha Nzuzo gasịrị ka anyị hụworo ọganihu pụrụ iche na teknọlọjị wee jupụta na ọnụego ịda ogbenye zuru ụwa ọnụ .
+Mana tupu ọdịda nke mgbidi Berlin, ụwa kewara .
+Ezie na Russia duuru otu Soviet na ụwa ime ka ụwa ghọọ paradaịs, United States (US) tinyere ego buru ibu iji kwụsị ebumnuche ndị otu Soviet .
+Mba abụọ a, Russia na United States, nwere echiche nkà ihe ọmụma ụwa dị iche; komunizim na ikeketeorie .
+N'ihi ọdịiche ha, ha abụọ jiri ọtụtụ akụ rụọ ọrụ iji bulie echiche ha n'akụkụ niile nke ụwa.
+Esemokwu nke echiche ndị a akpatawo ọgba aghara zuru ụwa ọnụ, nke na-emetụta ihe fọrọ nke nta ka ọ bụrụ mpaghara niile nke ụwa .
+Otutu ụlọ ọrụ dịka out jikọrọ mba ụwa United buru agha ebe ndị echiche ha nọ buru agha.
+N'oge ọgba aghara ahụ n'akụkọ ihe mere eme nke mmadụ, ọ dịghị onye ọ bụla n'ime anyị ritere uru; n'ezie, ihe kara njọ maka ọtụtụ mba na-emepe emepe, ebe ọnụọgụ ndọrọ ndọrọ ọchịchị ka ọkụ, akụkụ ya ụfọdụ, site na Agha Nzuzo .
+Taa, ọ dị mwute ikwu na ndị mmadụ na-echefukarị nsogbu nke esemokwu echiche ụwa niile nke were ọtụtụ afọ ime .
+O nwere ike ibute obere ncheta?
+N'ezie, Afrika bụ otu n'ime ala ndi agha .
+Ala nna m, ọdịda nke Afrika, bụ otu n'ime ndị ihe metụtara Agha Nzuzo .
+Otu n'ime ihe mere o jiri were anyị ogologo oge ịkwụsị ịkpa ókè agbụrụ bụ n'ihi na ike ụwa niile hụrụ mgba anyị na-alụ megide ịkpa ókè agbụrụ na agha oyi; Ndị Amerika lere Nelson Mandela dị ka onye ọchịchị Kọmunist, ha kwenyere na ndọrọ ndọrọ ọchịchị  ya, ndị kongres Afrika, nke Moscow kwadoro.
 US na Britain gbara mgba banyere ọgụ megide ịkpa ókè agbụrụ na South Africa, n'ihi ya, mgbe anyị na-ekwu banyere akụkọ banyere ọgụ ojii South Africa megide ịkpa ókè agbụrụ, anyị ekwesịghị ikewapụ ya na Agha Nzuzo.
-agha oyi ahụ bidoro ruo ọtụtụ afọ na Zaire - ugbu a ọchịchị onye kwuo uche ya na Congo - ka mba ahụ diri mgbe nsogbu gasịrị. Ọgba aghara ndọrọ ndọrọ ọchịchị ahụ bilitere na ọnwụ obi ọjọọ Patrice Lumumba na 1961, nke a na-akpọkarị Kọnị Kongo, bụ akụkụ nke mgbagha ike dị n'etiti Russia na US kpalitere. Onye nrụrụ aka bụ Mobuto Sese Seko onye weghaara ọchịchị na 1965 wee gbaa Zaire n'ala, ndị United States kwadoro ya maka ọtụtụ ọchịchị aka ike ya n'ihi na ọ bụ onye jikọrọ otu Soviet.
+agha oyi ahụ bidoro ruo ọtụtụ afọ na Zaire - ugbu a ọchịchị onye kwuo uche ya na Congo - ka mba ahụ diri mgbe nsogbu gasịrị .
+Ọgba aghara ndọrọ ndọrọ ọchịchị ahụ bilitere na ọnwụ obi ọjọọ Patrice Lumumba na 1961, nke a na-akpọkarị Kọnị Kongo, bụ akụkụ nke mgbagha ike dị n'etiti Russia na US kpalitere .
+Onye nrụrụ aka bụ Mobuto Sese Seko onye weghaara ọchịchị na 1965 wee gbaa Zaire n'ala, ndị United States kwadoro ya maka ọtụtụ ọchịchị aka ike ya n'ihi na ọ bụ onye jikọrọ otu Soviet.
 Ikpe ndị a dị n'etiti South Africa na DRC, na ọtụtụ ndị ọzọ na Africa, kpatara mbibi ndọrọ ndọrọ ọchịchị na mmekọrịta akụ na ụba na kọntinent ahụ.
-Ọgwụgwụ nke Agha Nzuzo butere ụwa ụzọ ọhụrụ, nke ziri ezi. Morewa na-arụkọ ọrụ ọnụ nke US na-eduzi. Nsonaazụ nguzobe nke ụwa ọhụrụ a bụ ihe ịtụnanya maka ọganihu mmadụ.
-Ọganihu ndị dị na teknọlọjị na ijikọ ụwa ọnụ emewo ka ịda ogbenye zuru ụwa ọnụ belata pasent iri. Taa, ọtụtụ ụmụ nwanyị nwere ohere ịga ụlọ akwụkwọ, ọnwụ nke ụmụaka ebelataala ihe karịrị ọkara. Ahụike ụwa niile adịla mma. N'otu aka ahụ, ndị ọkachamara na-ekwenye na anyị bi ugbu a n'oge udo kachasị mma n'akụkọ ihe mere eme nke mmadụ. Mana ọ bụ Afrika ka na-akwado ụzọ dị iche iche nke mmepe mmekọrịta mmadụ na Afọ mgbe Agha Ọgbọ nzuzo gasịrị.
-Mba Afrịka emeghị nke ọma ịhapụ akụ na ụba ha; ha ka nokwa na nkenke akara ngosiputa ihe Nketa nke Onwe ha. Esemokwu obodo, ọchịchị aka ike, na nrụrụ aka ka na-ebelata. Ọ bụ ezie na ọnụego ịda ogbenye ụwa nwere ike gbadata kemgbe mmalite 1990, ọnụego Afrika na-anọgide n'ụzọ dị elu ma e jiri ya tụnyere mpaghara ụwa ndị ọzọ.
-N'ịgafe n'otu n'ime oge siri ike ya na akụkọ ntolite, Afrika chọrọ mgbanwe nghazi ahịa. Ntughari a chọrọ ndị mmadụ ibute mba ha ụzọ, ọbụghị nke onwe ha. Onye isi ala Etiopia, Abiy Ahmed, onye natara onyinye nke udo nke 2019, bụ otu ndị anyị ga-elerukwu anya n'ịkwaga Afrika n'ihu. Agha Nzuzo bụ akụkọ ihe mere eme ugbu a. Ọ bụkwa akụkọ ihe mere eme; O nweghi ọtụtụ ihe anyị nwere ike ime iji gbanwee ya. Naanị ihe anyị ga - eme bụ ịmụta ihe na ya ma jiri ya na-eduzi ọdịnihu ka mma.
-Phumlani M. Majozi bụ onye nyocha ndọrọ ndọrọ ọchịchị na onye na-ahụ maka ihe gbasara mba ụwa, yana onye otu okenye na ntoghapu Afrika.org. ịnwere ike iso ya na akara Twita: @PhumlaniMMajozi
-Akwụkwọ ukwu: 'onye ka  ịbịara ịhụ?' - Nleta 'ndị na-akpọ oke'  ebe ana ere ihe oriri ndị China Shi Shi dị na Legos
-Mgbe anyị bịarutere Shi Shi, gbachie ebe obibi na Ikeja, anyị rutere n'ọnụ ụzọ ámá ahụ. 'N'ehihie ọma,' anyị kpọkuru ndị nche na-ama jijiji ma na-ewe iwe. "Didnye ka ị bịara ịhụ?" ọ jụrụ. N'ajụjụ a, onye nta akụkọ SaharaReporters jụrụ, sị: "Ihe a abụghị ụlọ oriri?" Onye nche ahụ dị ka ọ na-eche echiche banyere nzaghachi, mana ọ dị ka ọ na-eche ugboro abụọ banyere ya wee laa.
+Ọgwụgwụ nke Agha Nzuzo butere ụwa ụzọ ọhụrụ, nke ziri ezi .
+Morewa na-arụkọ ọrụ ọnụ nke US na-eduzi .
+Nsonaazụ nguzobe nke ụwa ọhụrụ a bụ ihe ịtụnanya maka ọganihu mmadụ.
+Ọganihu ndị dị na teknọlọjị na ijikọ ụwa ọnụ emewo ka ịda ogbenye zuru ụwa ọnụ belata pasent iri .
+Taa, ọtụtụ ụmụ nwanyị nwere ohere ịga ụlọ akwụkwọ, ọnwụ nke ụmụaka ebelataala ihe karịrị ọkara .
+Ahụike ụwa niile adịla mma .
+N'otu aka ahụ, ndị ọkachamara na-ekwenye na anyị bi ugbu a n'oge udo kachasị mma n'akụkọ ihe mere eme nke mmadụ .
+Mana ọ bụ Afrika ka na-akwado ụzọ dị iche iche nke mmepe mmekọrịta mmadụ na Afọ mgbe Agha Ọgbọ nzuzo gasịrị.
+Mba Afrịka emeghị nke ọma ịhapụ akụ na ụba ha; ha ka nokwa na nkenke akara ngosiputa ihe Nketa nke Onwe ha .
+Esemokwu obodo, ọchịchị aka ike, na nrụrụ aka ka na-ebelata .
+Ọ bụ ezie na ọnụego ịda ogbenye ụwa nwere ike gbadata kemgbe mmalite 1990, ọnụego Afrika na-anọgide n'ụzọ dị elu ma e jiri ya tụnyere mpaghara ụwa ndị ọzọ.
+N'ịgafe n'otu n'ime oge siri ike ya na akụkọ ntolite, Afrika chọrọ mgbanwe nghazi ahịa .
+Ntughari a chọrọ ndị mmadụ ibute mba ha ụzọ, ọbụghị nke onwe ha .
+Onye isi ala Etiopia, Abiy Ahmed, onye natara onyinye nke udo nke 2019, bụ otu ndị anyị ga-elerukwu anya n'ịkwaga Afrika n'ihu .
+Agha Nzuzo bụ akụkọ ihe mere eme ugbu a .
+Ọ bụkwa akụkọ ihe mere eme; O nweghi ọtụtụ ihe anyị nwere ike ime iji gbanwee ya .
+Naanị ihe anyị ga - eme bụ ịmụta ihe na ya ma jiri ya na-eduzi ọdịnihu ka mma.
+Phumlani M .
+Majozi bụ onye nyocha ndọrọ ndọrọ ọchịchị na onye na-ahụ maka ihe gbasara mba ụwa, yana onye otu okenye na ntoghapu Afrika.org .
+ịnwere ike iso ya na akara Twita: @PhumlaniMMajozi
+Akwụkwọ ukwu: 'onye ka ịbịara ịhụ?'
+- Nleta 'ndị na-akpa ókè' ebe ana ere ihe oriri ndị China Shi Shi dị na Legos
+Mgbe anyị bịarutere Shi Shi, gbachie ebe obibi na Ikeja, anyị rutere n'ọnụ ụzọ ámá ahụ .
+'N'ehihie ọma,' anyị kpọkuru ndị nche na-ama jijiji ma na-ewe iwe .
+"Onye ka ị bịara ịhụ?" ọ jụrụ .
+N'ajụjụ a, onye nta akụkọ SaharaReporters jụrụ, sị: "Ihe a abụghị ụlọ oriri?"
+Onye nche ahụ dị ka ọ na-eche echiche banyere nzaghachi, mana ọ dị ka ọ na-eche ugboro abụọ banyere ya wee laa.
 Kedu ebe ka mma iri nri ehihie karịa ụlọ oriri eboro ebubo ịkpa ókè agbụrụ?
 Ndi ntaakụkọ Sahara gara ụlọ oriri ndị China Shiụ Shiụ na Tọzde n'ihi ọtụtụ ebubo nke ịkpa ókè agbụrụ megide ndị ọbịa Naịjirịa na ụlọ oriri ahụ, nke dị na 21B, Emina Crescent, kwụsịrị Toyin Street, Ikeja, Legos
 Ahụmahụ anyị
 Mgbe anyị bịarutere Shi Shi, gbachie ebe obibi na Ikeja, anyị rutere n'ọnụ ụzọ ámá ahụ.
 N'ehihie ọma, anyị na-akpọ ndị nche na -atakasị ahụ na-ewe iwe.
-Onye ka ị bịara ịhụ? ọ jụrụ. N'ajụjụ a, onye ntaakụkọ Sahara jụrụ, sị: "Ihe ọbụghị ụlọ oriri?"
+Onye ka ị bịara ịhụ ? ọ jụrụ .
+N'ajụjụ a, onye ntaakụkọ Sahara jụrụ, sị: "Ihe ọbụghị ụlọ oriri?"
 Onye nche ahụ dị ka ọ na-eche echiche banyere nzaghachị, mana ọ dị ka ọ na-eche ugboro abụọ banyere ya wee laa azụ.
 Ndị otu ahụ malitere (anyị nwoghachitere dịka ndị mmadụ bịara ibubata ihe).
-Ọnụ ụzọ mere ihe na-atọ ọchị, mana a naghị ahụ ihe mmalite nke isi ahụ ngwa ngwa. E nwere otu ihe nkiri na-egosi ihe yiri akpa ezigbo akpụkpọ anụ. Anyị bara n'ụlọ oriri na-adịghị mma. N'ime, anyị bịarutere na tebụl ihu, nke nwere ụmụ nwanyị China na-ele anya n'azụ na ndebanye aha (ikekwe na-achọ idozi akwụkwọ ndị ahụ). O weliteghị anya elu, ewezuga ndị Naịjirịa na - eje ozi / ndị na - eche ndị Naịjirịa gosiri itunanya ma tụọ ụjọ na anyị guzo ebe ahụ.
-N'ebe ndị mmadụ nọdụrụ ala, ụmụ nwoke abụọ si Eshia nọ ọdụ, na-ele anyị anya. Otu onye so n'òtù ahụ chigharịrị jiri olu siri ike jụọ, sị: "Enwere m ike ịhụ nchịkọta nhọrọ gị?" ọkwa ahụ bụ ka anyị wepu isi ọrụ anyị ebe ahụ.
-A kpọgara anyị n'oche, anyị ise na tebụl okirikiri na-eleghara iko na-ahụ ụzọ na ebe a na-anọdụ ala n'èzí. Ka nri ahụ bịarutere, ihe dịka mmadụ atọ na - echere anyị, na - agbagharị n'enweghị ihe kpatara ya, otu na - eme ka a ga - asị na ọ chọrọ inye tii, oge niile na - eleba anya na ekwentị anyị.
+Ọnụ ụzọ mere ihe na-atọ ọchị, mana a naghị ahụ ihe mmalite nke isi ahụ ngwa ngwa .
+E nwere otu ihe nkiri na-egosi ihe yiri akpa ezigbo akpụkpọ anụ .
+Anyị bara n'ụlọ oriri na-adịghị mma .
+N'ime, anyị bịarutere na tebụl ihu, nke nwere ụmụ nwanyị China na-ele anya n'azụ na ndebanye aha (ikekwe na-achọ idozi akwụkwọ ndị ahụ) .
+O weliteghị anya elu, ewezuga ndị Naịjirịa na - eje ozi, ndị na - eche ndị Naịjirịa gosiri itunanya ma tụọ ụjọ na anyị guzo ebe ahụ.
+N'ebe ndị mmadụ nọdụrụ ala, ụmụ nwoke abụọ si Eshia nọ ọdụ, na-ele anyị anya .
+A kpọgara anyị n'oche, anyị ise na tebụl okirikiri na-eleghara iko na-ahụ ụzọ na ebe a na-anọdụ ala n'èzí .
+Ka nri ahụ bịarutere, ihe dịka mmadụ atọ na - echere anyị, na - agbagharị n'enweghị ihe kpatara ya, otu na - eme ka a ga - asị na ọ chọrọ inye tii, oge niile na - eleba anya na ekwentị anyị.
 Nche ahụ
-Ka anyị na-eche osikapa anyị na eghe eghe, anyi kwuru obere okwu, na-añụ tii. Ka ọ dị ugbu a, ewezuga ndị na-eche nche na-ele anya ma nọrọ n'akụkụ ebe a na-echekwa oriri n'ụlọ oriri ahụ, nwanyị China ahụ na-ele anya n'azụ ebe ọ nọ ọdụ n'akụkụ nri.
-Ọ bekuru nwanyị ọzọ (onye China) wee gwa ya okwu n'asụsụ ha, mgbe anyị na-emegharị anyị. Nwaanyị ọhụụ na - enweghị atụ (ọbụlagodi onye na-amụ amụ) bidoro n'ese anyị foto na ndekọ. Ahụrụ m ya ile ma ọ nwara ilepụ anya ka ọ na-ezo ekwentị ya. Maa usu.
+Ka anyị na-eche osikapa anyị na eghe eghe, anyi kwuru obere okwu, na-añụ tii .
+Ka ọ dị ugbu a, ewezuga ndị na-eche nche na-ele anya ma nọrọ n'akụkụ ebe a na-echekwa oriri n'ụlọ oriri ahụ, nwanyị China ahụ na-ele anya n'azụ ebe ọ nọ ọdụ n'akụkụ nri.
+Ọ bekuru nwanyị ọzọ (onye China) wee gwa ya okwu n'asụsụ ha, mgbe anyị na-emegharị anyị .
+Nwaanyị ọhụụ na - enweghị atụ (ọbụlagodi onye na-amụ amụ) bidoro n'ese anyị foto na ndekọ .
+Ahụrụ m ya ile ma ọ nwara ilepụ anya ka ọ na-ezo ekwentị ya .
+Maa usu.
 Anyị gara n'ihu na-enwe mkparịta ụka ka ebutere nri, osikapa e ghere eghe nke China bịara na mbụ.
 N'ịgbaso ihe m chọpụtara dị ka idozi 'mkpọchi nlegharị anya' anyị, 'Nwanyị igwe foto' bịakwutere tebụl anyị ma kwee nkwa ịkụziri anyị otu esi eji osisi eje eri nri.
 Biko detuo: mgbe m na-echekwa banyere ihe ndekọ banyere ahụmịhe anyị na onye na-edekọ ihe nzuzo, ndị otu ahụ chọpụtara na ụmụ nwoke abụọ Eshia nọ ọdụ ma mee ihu ha "na-asọ oyi, bilitere ma banye n'otu n'ime ọtụtụ ụlọ" n'ụlọ oriri
 Ihe nkiri a ga-agariri n'ihu
-Ya mere, ọ malitere, oke ọrụ ọbụbụenyi a na-eme, ka ọdịmma, ịmụmụ ọnụ ọchị na ịmanye azịza ajụjụ. eh eh (nwanyị igwe foto) na - akụzịrị anyị ugbua etu esi eji osisi nri. Otu onye so n'òtù ahụ rịọrọ maka ise foto ngwa ngwa wee zilaga ya, ọ gara n'ihu, iwu ji onye ọ bụla, tinyere mụ onwe m.
-Anọ m na-eche ma ha na ndị ọbịa ha niile ọ na-esekọ foto ka ọ bụ ọ bụrụ na ọ bụ ihe nlegharị anya nke PR? N'oge na-adịghị anya ka nke ahụ gasịrị, anyị ga-apụ ma rịọ maka ngwugwu maka ihe fọdụ spaghetti anyị na osikapa e ghere eghe (Chineke ajụ ka ha laa n'iyi). Ka anyị na-achọ ịpụ, otu nwanyị nwanyị yi akwa ojii (onye Cjina) pụtara site n'otu n'ime ọtụtụ ụzọ.
-Ọ rutere anyị nso ma sị "ndewo" ma nọrọ ebe ahụ. Otu onye so n'òtù egwuregwu ahụ rịọrọ maka aha ya ma ọ sị Si Si ma gosipụta onwe ya dị ka onye na-elekọta ebe ahụ. Otu onye otu ha jụrụ ajụjụ ma "a na-anabata mmadu niile ebe a?" nke o kwuru, sị "ee".
-Ọ gara soro anyị pụọ n'ọnụ ụzọ (ọzọ, kedu ntọala onye ọrụ ya hụrụ ndị ahịa ruo n'ọnụ ụzọ ahụ?). Ka anyị na-apụ n'ụlọ ahụ, ahụrụ m onye nche (ọ dịka ọ bụ onye Naịjirịa n'anya ya) dị ka ụjọ ọna-atụ ya. Apụghị m ịhapụ ya, n'ihi ya, m laghachịrị wee see foto n'ihu ụlọ ahụ. Kedu otu ọzọ anyị ga-esi gosi na anyị bịara iri spaghetti ịkpa oke?
+Ya mere, ọ malitere, oke ọrụ ọbụbụenyi a na-eme, ka ọdịmma, ịmụmụ ọnụ ọchị na ịmanye azịza ajụjụ .
+eh eh (nwanyị igwe foto) na - akụzịrị anyị ugbua etu esi eji osisi nri .
+Otu onye so n'òtù ahụ rịọrọ maka ise foto ngwa ngwa wee zilaga ya, ọ gara n'ihu, iwu ji onye ọ bụla, tinyere mụ onwe m.
+Anọ m na-eche ma ha na ndị ọbịa ha niile ọ na-esekọ foto ka ọ bụ ọ bụrụ na ọ bụ ihe nlegharị anya nke PR ?
+N'oge na-adịghị anya ka nke ahụ gasịrị, anyị ga-apụ ma rịọ maka ngwugwu maka ihe fọdụ spaghetti anyị na osikapa e ghere eghe (Chineke ajụ ka ha laa n'iyi) .
+Ka anyị na-achọ ịpụ, otu nwanyị nwanyị yi akwa ojii (onye Cjina) pụtara site n'otu n'ime ọtụtụ ụzọ.
+Ọ rutere anyị nso ma sị "ndewo" ma nọrọ ebe ahụ .
+Otu onye so n'òtù egwuregwu ahụ rịọrọ maka aha ya ma ọ sị Si Si ma gosipụta onwe ya dị ka onye na-elekọta ebe ahụ .
+Otu onye otu ha jụrụ ajụjụ ma "a na-anabata mmadu niile ebe a?" nke o kwuru, sị "ee".
+Ọ gara soro anyị pụọ n'ọnụ ụzọ (ọzọ, kedu ntọala onye ọrụ ya hụrụ ndị ahịa ruo n'ọnụ ụzọ ahụ?) .
+Ka anyị na-apụ n'ụlọ ahụ, ahụrụ m onye nche ọ dịka ọ bụ onye Naịjirịa n'anya ya dị ka ụjọ ọna-atụ ya .
+Apụghị m ịhapụ ya, n'ihi ya, m laghachịrị wee see foto n'ihu ụlọ ahụ .
+Kedu otu ọzọ anyị ga-esi gosi na anyị bịara iri spaghetti ịkpa oke?
 Ọ bụrụ na onye nlekọta ahụ si na windo nkụwa ahụ na-ele anyị m kọwara na mbụ; ọ tụghị anya na anyị ga-alaghachi na mberede maka foto.
 Ihe ndị ọzọ na-enyo enyo bụ onye na-eche nche, bụ onye tụrụ alo ka m jiri mgbidi nwere ụfọdụ ifuru see foto ahụ ka m ghara iguzo n'akụkụ ọnụ ụzọ nke nwere aha ntọala ahụ akpụrụ na ya.
 Na njedebe
-Site na nchoputa anyi, nmekorita nlekọta na ndị ọrụ, enweghị ike iche ihe ọzọ na-abụghị na ụlọ oriri Shi Shi bụ ihe agbụrụ, ya mere ajụjụ ndị nche banyere onye anyị choro bịa na ebe edepụtara dika ụlọ nri ọnọdụ ọbụla na Google. Enwekwara esemokwu nke ndị ọrụ na-esekọ ihe nkiri anyị, ọrụ uwe ojii mgbe anyị na-eri nri na onye njikwa anyị na-eso anyị pụọ. Ha gaara eme ihe niile  ma ọ bụrụ na anyị bụ ndị China?
+Site na nchoputa anyi, nmekorita nlekọta na ndị ọrụ, enweghị ike iche ihe ọzọ na-abụghị na ụlọ oriri Shi Shi bụ ihe agbụrụ, ya mere ajụjụ ndị nche banyere onye anyị choro bịa na ebe edepụtara dika ụlọ nri ọnọdụ ọbụla na Google .
+Enwekwara esemokwu nke ndị ọrụ na-esekọ ihe nkiri anyị, ọrụ uwe ojii mgbe anyị na-eri nri na onye njikwa anyị na-eso anyị pụọ .
+Ha gaara eme ihe niile  ma ọ bụrụ na anyị bụ ndị China?
 N'agba nke ụlọ oriri ahụ iji mee ka e kpuchie omume ha, ha nyere anyị nnukwu nnabata .
 Nde nnọchị anya nyere iwu ndozi nke ebe a na-anata ụgbọ ala na ọdụ Apapa
-ụlọ ahụ gwara ndị ọrụ ọdụ ụgbọ mmiri na Naịjirịa ka ha rụzie mgbidi mbibi nke ụlọ ọrụ ahụ ngwa ngwa ma rụọ nkwalite ihe owuwu dị ukwuu na ọdụ ụgbọ mmiri.
-Daily Trust (Nchekube kwa ụbọchị
+Ụlọ ahụ gwara ndị ọrụ ọdụ ụgbọ mmiri na Naịjirịa ka ha rụzie mgbidi mbibi nke ụlọ ọrụ ahụ ngwa ngwa ma rụọ nkwalite ihe owuwu dị ukwuu na ọdụ ụgbọ mmiri.
+Daily Trust
 Ndị ụlọ omebe iwu nyere iwu ka arụzie ọdụ ụgbọ mmiri n'ọdụ ụgbọ mmiri Apapa dị na Legos maka ịnata ụgbọ ala ebubatara n'ụzọ iwu.
 ụlọ ahụ gwara ndị ọrụ ọdụ ụgbọ mmiri na Naịjirịa ka ha rụzie mgbidi mbibi nke ụlọ ọrụ ahụ ngwa ngwa ma rụọ nkwalite ihe owuwu dị ukwuu na ọdụ ụgbọ mmiri.
 Onye na-akwado ụgwọ ahụ, Benjamin Bem kwuru na steeti dara ogbenye n'ihi na ụlọ ọrụ ahụ na-efu mba ijeri naịra 600 kwa afọ.
@@ -1212,24 +1305,21 @@ Dika ntinye Abba Bichi, nwa onye isi nke Ngalaba Na-ahụ Maka Ndị Ọrụ, na
 Isi mmalite ekpughere otu onye na-esote onye isi oche nke NFF nke Naịjirịa, Shehu Dikko, lebara anya n'ụzọ nwa nwanne Bichi si sonye n'ime ndepụta otu ikpeazụ nke onye nchịkwa Manu Garba nyefere FIFA na-agbanyeghị na aha ya anọghị na ndepụta ndị egwuregwu 50.
 Ndị ntọakụkọ Sahara bipụtala etu ndị isi NFF siri rụgide Garba ịhọrọ Bichi ma yie ya egwu ma ọ bụrụ na o nyeghị ya.
 E kpughere na Garba kwupụtara obi abụọ banyere ikike nwata nwoke nwere ịbanye n'òtù ahụ.
-Leekwa
-Azuokpuru
 Otu NFF si dufuo Onye isi DSS, Abba Bichi, n'ime ndi egwuregwu ịkọ mba ụwa U-17 
-Ntụnye okwu
-Otu ọnwa gara aga
 Ọzọkwa, iji mee ka nwa Bichi sonye n'òtù ahụ, Garba hapụrụ otu n'ime ndị otu egwuregwu ya.
 Kaosi di, eziokwu ohuru ekpughere bụ na Dikko choro ma mejupụta atụmatụ ya site na nkwado nke ụfọdụ ndị NFF.
 Egosila ndị ntọakụkọ Sahara otutu ihe na Dikko sitere na atụmatụ a iji chọọ ihu ọma gbasara omume aka azụ ya na ebe ndị n'akpọchị ndị aka azụ, ndị iwu ndị ọzọ na ndị ọrụ na-ahu maka mkpafu akụ na ụba.
 Ndị ICPC na-enyocha Dikko na ụfọdụ ndị isi NFF maka mmejọ ego na ụzọ ichekwa ego echere maka ọgbakọ a
 Ndị ICPC na Septemba nwetara ikike ụlọ ikpe iji mechie ụlọ nke Dikko na Rivers Steeti.
-'Nsonye nke nwa onye isi DSS bụ iji nweta ihu ọma.
+Nsonye nke nwa onye isi DSS bụ iji nweta ihu ọma.
 Dikko mere atụmatụ ahụ ka ya na ndị isi NFF ndị ọzọ na-eme nyocha nke EFCC na ICPC ga-enwere onwe ha.
-A kpara nkata a nke ọma n'oge NFF nọ na nche na nyocha siri ike." akọrọ na.    
-onye isi ndị NFF, Amaju Pinnick; osote onye isi nke mbu, Seyi Akinwunmi; Dikko; na onye so n'otu ndị isi ọzọ, Yusuf ' ịdị saam', ha niile nwere ikpe maka aka azụ na ikpe ọnụọgụgụ17 banyere ịkpafu dọla nde 8.4 nke otu bọlu.  
+A kpara nkata a nke ọma n'oge NFF nọ na nche na nyocha siri ike." akọrọ na .   
+onye isi ndị NFF, Amaju Pinnick; osote onye isi nke mbu, Seyi Akinwunmi; Dikko; na onye so n'otu ndị isi ọzọ, Yusuf ' ịdị saam', ha niile nwere ikpe maka aka azụ na ikpe ọnụọgụgụ17 banyere ịkpafu dọla nde 8.4 nke otu bọlu .
 Enyere ndị isi NFF iwu ịpụta n'ụlọ ikpe na Nọvemba 5, 2019 nke bụ ụbọchị enwelara ikpe ahụ.
-Mana ndị NFF kwuru na ọ bụ onye nhazị ha họrọ Oduko maka otu o si aghọta egwuregwu a, na-ekwughasi okwu ekwuru na a hapuru ya maka onye otu ha ọzọ.     
-'Bichi bụ onye straika; Oduko bụ onye ukwu ịpa azụ   
-A hapuru Oduko maka Charles Etim. Oduko bụ onye ahụ gbajọrọ na asọmpị anyị na Guinea gbara na  U17 AFCON na Tanzania, nke mere anyị ji gbaa ndị nke atọ" onye kwuru bụ onye ntọakụkọ nke NFF, Demola Olajire.
+Mana ndị NFF kwuru na ọ bụ onye nhazị ha họrọ Oduko maka otu o si aghọta egwuregwu a, na-ekwughasi okwu ekwuru na a hapuru ya maka onye otu ha ọzọ .
+Bichi bụ onye straika; Oduko bụ onye ukwu ịpa azụ
+A hapuru Oduko maka Charles Etim .
+Oduko bụ onye ahụ gbajọrọ na asọmpị anyị na Guinea gbara na  U17 AFCON na Tanzania, nke mere anyị ji gbaa ndị nke atọ" onye kwuru bụ onye ntọakụkọ nke NFF, Demola Olajire.
 Ndị Golden Eaglets emeela egwuregwu abụọ n'asọmpị a na-aga n'ihu mana Bichi apụtaghị na asọmpị ahụ.
 Ndị uweojii Rivers na-akọwa Mmechi ụzọ Port Harcourt-Aba Road Kemgbe ntuli aka nke Mach 9
 Emere ihe a "iji chekwaa ụlọ ọrụ INEC dị n'etiti ebe nkwụsị Waterlines na ụgbọ ala GRA , ndị ọrụ ya na ihe ntuli aka dị na ụlọ ọrụ"
@@ -1237,14 +1327,15 @@ ndị uwe ojii na Rivers steeti ekwuola na mmechi na-aga n'ihu na Port Harcourt-
 DSP Nnamdi Omoni, ọnụ na-ekwuru ndị uwe ojii Rivers rịọrọ ndị bi na Port Harcourt, isi obodo Rivers steeti, iji gosi nghọta na imekọ ihe ọnụ.
 Dị ka Omoni si kwuo, ebughị n'obi iwetere ndị bi na ya ihe isi ike.
 Mpụga Waterlines ruo nkwụsị okporo ụzọ GRA ahụ ka emechiri kemgbe ọnwa 9 nke afọ 2019, ntuli aka nke gọvanọ na nke ụlọ ọgbakọ.
-'Ọ bụ maka ọdịmma nke ndị Rivers; ebughị n'obi ịkpatara ndị bi na ya ihe isi ike. Ndi mmadu doo obi maka Iwu a; ọ bụ naanị nwa oge, 'ka o kwuru, na-agbakwunye na ihe a mere iji' chekwaa ụlọ ọrụ INEC nke dị n'etiti nkwụsị bọs nke Waterlines na GRA, ndị ọrụ ya na akụrụngwa ntuli aka '.
+'Ọ bụ maka ọdịmma nke ndị Rivers; ebughị n'obi ịkpatara ndị bi na ya ihe isi ike .
+Ndi mmadu doo obi maka Iwu a; ọ bụ naanị nwa oge, 'ka o kwuru, na-agbakwunye na ihe a mere iji' chekwaa ụlọ ọrụ INEC nke dị n'etiti nkwụsị bọs nke Waterlines na GRA, ndị ọrụ ya na akụrụngwa ntuli aka '.
 ụmụnwanyị Rivers ga-agbaọtọ ga na ụlọ ọrụ INEC  - Ọ gwụla ma ewepụrụ Effanga dịka REC
 ụmụ nwaanyị ahụ yiri egwu na ọ bụrụ na n'ime awa 48 na-abịa, ọkamụta Mahmood Yakubu, Onye isi oche nke ụlọ ọrụ na-ahụ maka ntuli aka (INEC) jụrụ ịnabata arịrịọ ha, ha ga-agbaọtọ gaa n'isi ụlọ ọrụ INEC nke Port Harcourt.
 Ọtụtụ puku ndị nwaanyị agbaala n'okporo ụzọ Port Harcourt, isi obodo Rivers Steeti iji chọọ nchụpụ Obo Effanga, dịka REC.
 Ndị ngagharị iwe a, yi uwe ojii na ndị si mpaghara iri abụọ na atọ nke steeti ahụ wee sị na ọnụnọ ya na steeti ahụ bụ esemokwu na nsogbu ga - agbasa nke iwu na usoro ya.
-Na-eburu kaadị e dere ihe dị iche iche, ụmụ nwanyị ahụ kwuru na ọ bụrụ na n'ime awa iri anọ na asatọ na-abịanụ, Prọfesọ Mahmood Yakubu, Onye isi oche nke ụlọ ọrụ na-ahụ maka ntuli aka (INEC) añaghị ntị na arịrịọ ha, ha ga-agbaọtọ gaa n'isi ụlọ ọrụ INEC dị na Port Harcourt. 
-Ngagharị iwe nke megide INEC REC agbaliela na Rivers steeti n'ime ụbọchị atọ gara aga, ndị na-eme ngagharị iwe gọọmentị na-arịọ ka edobe Effanga na steeti ahụ, ebe ndị na-emegide Effanga na-achọ ka ewepu ya, na-ebo ya ebubo imebi ihe ga-esi na ya pụta. Ndị isi ọchịchị n'abalị iri-iteghete nke ọnwa nke isii na steeti iji kwado Nyesom Wike, onye ọchịchị gọvanọ nke Gọọmenti Rivers steeti.
-ọ bụghị naanị ụmụ nwaanyị nọ n'ọkwa maka mkpochapu Effanga, ụfọdụ ndị na-azọ ọkwa gọvanọ esonyela oku a.
+Na-eburu kaadị e dere ihe dị iche iche, ụmụ nwanyị ahụ kwuru na ọ bụrụ na n'ime awa iri anọ na asatọ na-abịanụ, Prọfesọ Mahmood Yakubu, Onye isi oche nke ụlọ ọrụ na-ahụ maka ntuli aka (INEC) añaghị ntị na arịrịọ ha, ha ga-agbaọtọ gaa n'isi ụlọ ọrụ INEC dị na Port Harcourt .
+Ngagharị iwe nke megide INEC REC agbaliela na Rivers steeti n'ime ụbọchị atọ gara aga, ndị na-eme ngagharị iwe gọọmentị na-arịọ ka edobe Effanga na steeti ahụ, ebe ndị na-emegide Effanga na-achọ ka ewepu ya, na-ebo ya ebubo imebi ihe ga-esi na ya nhọpụta ndị isi ọchịchị n'abalị iri-iteghete nke ọnwa nke isii na steeti iji kwado Nyesom Wike, onye ọchịchị gọvanọ nke Gọọmenti Rivers steeti.
+Ọ bụghị naanị ụmụ nwaanyị nọ n'ọkwa maka mkpochapu Effanga, ụfọdụ ndị na-azọ ọkwa gọvanọ esonyela oku a.
 N'edemede ya na-adịbeghị anya o dere ma kesaa, Tonye Cole, onye na-azọ ọkwa gọvanọ nke APC, kwuru na nanị nhapụ nke Effanga ga-eme ka enwee ntuli aka ziri ezi na Rivers Steeti.
 Ọ kpọrọ oku ka akagbuo votu ahụ kpamkpam, dị ka ọ kpọghachiri oku Dumo Lulu-Briggs na ntuli aka ndị otu Accord, onye kọwapụtara mmemme ahụ niile dịka "ọgbahara", yana Victor Fingesi nke ADP, onye kwuru na INEC mere atụmatụ ịtụ vootu ga-akụ afọ n'ala.
 Ruiz na-arịọ Anthony Joshua Maka ọgụ nke atọ mgbe ndị Naịjirịa welatara ịkọ mmeri 
@@ -1258,13 +1349,20 @@ Mgbe Joshua jụrụ Ruiz ma ọ chọrọ ịla ezumike nká na-esochi oku maka
 ọ jụrụ ndị gbakọrọ, "Kedu onye chọrọ ihu ọgụ nke atọ?".
 N'ezie, Ruiz Jr jụrụ igwe mmadụ Saudi Arabia ọtụtụ oge ma ha ga-achọ ịhụ ọgụ nke atọ n'etiti mmadụ abụọ ahụ na o yiri ka ọ chọrọ ime ya na Saudi ọzọ.
 Joshua tụrụ alo ka ya nọrọ nke ọma, na-ekwupụta, "Ọ bụrụ na ị nụrụ, anyị ga-eme nke atọ."
- N'abalị agbapụrụ Ruiz ọ ma kweta na ọ banyere ọgụ ahụ n'oke arụ ahu, na o tinyere ihe karịrị akpịrịkpa ahụ ihe karịrị okwute iri abụọ na Fraịde.
-O kwuru "ọ bụ abalị ya. A kwadoghịm kam si kwesi"
-Eburu m ibu nke ukwuu. Achọghị m ịnye ngọpụ, ọ meriri. Ọ kụrụ m ihe tinka kuru pan.
-'Ọ bụrụ na anyị na-agba ọgụ nke atọ, aga m enwe ọdịdị. Aga m anọ n'ụdị kachasị mma nke ndụ m.
-Echere m na m ga-enwe ahụ ike. M na-esote ọgụ m ga-akwadokwu. Agbalịrị m ịzụ onwe m maka nke a.
-Anọ m na-achụ ya nke ukwuu. Anọ m na-egbu oge nke ukwuu. '
-Russia na-enweta mmachi afọ anọ na mmemme egwuregwu ụwa niile maka nruruaka. 
+N'abalị agbapụrụ Ruiz ọ ma kweta na ọ banyere ọgụ ahụ n'oke arụ ahu, na o tinyere ihe karịrị akpịrịkpa ahụ ihe karịrị okwute iri abụọ na Fraịde.
+O kwuru "ọ bụ abalị ya .
+A kwadoghịm kam si kwesi"
+Eburu m ibu nke ukwuu .
+Achọghị m ịnye ngọpụ, ọ meriri .
+Ọ kụrụ m ihe tinka kuru pan.
+'Ọ bụrụ na anyị na-agba ọgụ nke atọ, aga m enwe ọdịdị .
+Aga m anọ n'ụdị kachasị mma nke ndụ m.
+Echere m na m ga-enwe ahụ ike .
+M na-esote ọgụ m ga-akwadokwu .
+Agbalịrị m ịzụ onwe m maka nke a.
+Anọ m na-achụ ya nke ukwuu .
+Anọ m na-egbu oge nke ukwuu .
+Russia na-enweta mmachi afọ anọ na mmemme egwuregwu ụwa niile maka nruruaka .
 Ọ pụtara na a gaghị anabata Russia na ihe omume dịka Tokyo 2020 Olympics na Paralympics na 2022 na asọmpị mba ụwa FIFA na Qatar.
 Ndị otu mba ụwa na-arụ ọrụ megide nruruaka enyela Russia afọ anọ ha agaghị esonye na ihe omume egwuregwu niile.
 Ọ pụtara na a gaghị anabata Russia na ihe omume dịka Tokyo 2020 Olympic na Paralympics na asọmpi iko mba ụwa FIFA nke 2022 na Qatar, BBC na-akọ.
@@ -1273,20 +1371,17 @@ Kọmitii na-ahụ maka WADA mere mkpebi a n'otu nzukọ na Lausanne, Switzerlan
 Ọ abịara mgbe ekwuputara na ndị na-arụ ọrụ megide nruruaka nke  Russia na-enweghị mmezi maka ịmegharị ọrụ nyocha n'ụlọ nyocha ha enyefere ndị ọrụ nyocha na Jenụwarị 2019.
 O kwesiri inyefe WADA ihe eji arụ ọrụ dị ka ọnọdụ nke iweghachite arụmụka ya na 2018 mgbe a chụpụrụ ya afọ atọ maka asambodo  nruruaka steeti ya buru ibu.
 Onye isi WADA, Mazịr Craig Reedie, kwuru na mkpebi a gosipụtara "mkpebi ya ime mkpebi siri ike n'agbanyeghị nsogbu nruruaka nke Russia".
-Ọ gbakwụnyere, "Ruo ogologo oge, ọgwụ ndị Russia emerụsịrị emerụ site na egwuregwu dị ọcha. Mkpesa siri ike nke ndị ọchịchị Russia nke ọnọdụ iweghachi Rusada chọrọ nzaghachi siri ike.
+Ọ gbakwụnyere, "Ruo ogologo oge, ọgwụ ndị Russia emerụsịrị emerụ site na egwuregwu dị ọcha .
+Mkpesa siri ike nke ndị ọchịchị Russia nke ọnọdụ iweghachi Rusada chọrọ nzaghachi siri ike.
 Nke ahụ bụ kpọmkwem ihe ewepụtara.
-Enyere Russia ohere ọ iji jịkọta ụlọ ya n'usoro ma soro ndị obodo na-egbochi mkpokọ ụwa maka ọdịmma ndị egwuregwu ya na eziokwu nke egwuregwu kama ọ họọrọ ịga n'ihu na ọnọdụ ya nke aghụghọ na ngọnarị. " 
+Enyere Russia ohere ọ iji jịkọta ụlọ ya n'usoro ma soro ndị obodo na-egbochi mkpokọ ụwa maka ọdịmma ndị egwuregwu ya na eziokwu nke egwuregwu kama ọ họọrọ ịga n'ihu na ọnọdụ ya nke aghụghọ na ngọnarị .
 Chụọ DSS DG, Yusuf Bichi, Premium Times na-agwa Buhari na Nchịkọ Ọhụrụ
-"Ihe atụ gosiri na, Mz. Bichi's onye isi ndị DSS abụrụla ihe iyi egwu nye ụkpụrụ usoro ọchịchị onye kwuo uche ya."
+"Ihe atụ gosiri na, Mz Bichi's onye isi ndị DSS abụrụla ihe iyi egwu nye ụkpụrụ usoro ọchịchị onye kwuo uche ya.
 Premium Times, ụlọ ọrụ akụkọ nọrọ onwe ya na Naịjirịa akpọọla Onye isi ala Muhammadu Buhari ka ọ chụọ Yusuf Bichi, onye isi Ngalaba nke Ọrụ ọrụ, maka ọrụ ya na mwakpo nke ndị agha ya na mwakpo ụlọ ikpe gọọmentị etiti na Abuja na Fraịde gara aga iji nwuchie Omoyele Sowore .
 Onye na-ekwuchitere DSS, Peter Afunanya, agọnarị ụzọ mwakpo ahụ n'agbanyeghị ihe akaebe.
 Ọrụ ahụ mechara kụọ azụ mgbe Bichi zigara ndị nnọchi anya ịrịọ Onye isi ọka ikpe nke ụlọ ikpe dị elu nke etiti ala ịrịọ maka ihe ahụ merenụ.
-N'ime nchịkọta akụkọ na Fraịde, Premium Times kwuru, ọnụ ọgụgụ dị egwu nke enweghị ntaramahụhụ na akparamaagwa n'okpuru ọchịchị Onye isi ala bụ Muhammadu Buhari dakwasịrị omimi ọhụụ na Fraịde, Disemba 6 mgbe ndị ọrụ agha nke Ndị Ọrụ Nchebe Obodo (nke a na-akpọkarị Ngalaba Ọrụ - DSS), wakporo ụlọ ikpe ukwu nke etiti ala No. 7 na Abuja, isi ngalaba obodo. "
+N'ime nchịkọta akụkọ na Fraịde, Premium Times kwuru, ọnụ ọgụgụ dị egwu nke enweghị ntaramahụhụ na akparamaagwa n'okpuru ọchịchị Onye isi ala bụ Muhammadu Buhari dakwasịrị omimi ọhụụ na Fraịde, Disemba 6 mgbe ndị ọrụ agha nke Ndị Ọrụ Nchebe Obodo (nke a na-akpọkarị Ngalaba Ọrụ - DSS), wakporo ụlọ ikpe ukwu nke etiti ala No .
+7 na Abuja, isi ngalaba obodo .
 Anyị nọzi n'oge ahụ ebe a na-arụ ụka na ọ dịghị mgbe ọ bụla n'akụkọ ihe mere eme nke Nigeria, gụnyere n'oge ọchịchị ndị ọcha na oge ọchịchịrị nke ọchịchị ndị agha, nwere omume enweghị nsọpụrụ dị otú ahụ maka ịdị nsọ nke ụlọ ikpe iwu na nnwere onwe nke ikpe.
-Anyị nwere nchegbu dị ukwuu na ndị DSS n'okpuru Yusuf Bichi emeela ihe ugboro ugboro ka a ga-asị na ọ karịrị iwu nke ala. Mmebi ahụ mebiri ikike ụmụ amaala mmadụ nke site na nchekwa ebe ọ bụ na Mz Bichi chere na ikike nke onye isi na nlelị nke o jirila na-emeso ikpe nke gọọmentị site na nnupụisi dị egwu nke iwu ụlọikpe na-achọ ịkwụsị nkwụsi ike. ụdị mmebi a, abụrụla ihe a na-eme kwa ụbọchị. 
-
-
------------------------------------------------------------------------------
-
-Ọ bụ ọkọlọtọ pere mpe nke etinyere na mba niile. 
-Amaara m na ọbụnadị ndị na-eme mpụ ntuli aka anaghị anabata ikike njem na mba ụfọdụ, ị ghara ikwu banyere ndị na-edina ụmụaka.
+Anyị nwere nchegbu dị ukwuu na ndị DSS n'okpuru Yusuf Bichi emeela ihe ugboro ugboro ka a ga-asị na ọ karịrị iwu nke ala .
+Mmebi ahụ mebiri ikike ụmụ amaala mmadụ nke site na nchekwa ebe ọ bụ na Mz Bichi chere na ikike nke onye isi na nlelị nke o jirila na-emeso ikpe nke gọọmentị site na nnupụisi dị egwu nke iwu ụlọikpe na-achọ ịkwụsị nkwụsi ike ụdị mmebi a, abụrụla ihe a na-eme kwa ụbọchị .
