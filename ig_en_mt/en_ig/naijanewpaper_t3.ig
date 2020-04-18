@@ -1069,8 +1069,7 @@ Ma, oke mmiri ozuzo na - enye ohere site n'aka ndị otu ndi agha gbabigoro ma b
 N'abalị Tuzdee (ọgọst 20) na Dika, nwanyị gbara ogbunigwe tụbara bọmbụ, gbuo onwe ya ma merụọ ndị nkịtị anọ ahụ.
 Nke a bụ nke mbu n'mpaghara ebe a na Disemba afọ 2018.
 RE: DSS na Ụlọ Ọkaịkpe nke Ụbọchị Isii N'Ọnwa Disemba, ihe mere n'Abuja site n'aka Lucky Ighoyota
-END-----------------------------------------------------------------------END
-Mwakpo nke ụlọ ọrụ ndị ọkaịkpe wakporo na Fraịdee ka onye ọrụ ya bụ Omoyele Sowore na onye na - agbachitere ya, Olawale Bakare erughị awa iri abụọ na anọ ka enyere ha ohere mgbapụta bụ ihe kacha njọ na-akwado megide ikike ikpe nke gọọmentị. onye ọrụ ahụ egosipụtala nlelị maka ya.
+Mwakpo nke ụlọ ọrụ ndị ọkaịkpe wakporo na Fraịdee ka onye ọrụ ya bụ Omoyele Sowore na onye na - agbachitere ya, Olawale Bakare erughị awa iri abụọ na anọ ka enyere ha ohere mgbapụta bụ ihe kacha njọ na-akwado megide ikike ikpe nke gọọmentị nke onye ọrụ ahụ egosipụtala nlelị maka ya.
 Na Satọde, Disemba 7, ka awa iri abụọ garachara, ụlọ ikpe ukwu ahụ, n'Abuja, Ngalaba Na-ahụ Maka Ọrụ kwuru banyere eziokwu n'ezie iji kwụsị aha ya mebiri emebi.
 Ọ bụghị ihe ịtụnanya nye anyị ma ọ bụ ọha na eze, bụ ndị maara akụkọ ndị DSS nke nwere ọtụtụ akụkọ ụgha iji mepụta echiche ụgha ma ọ bụ nke na-eduhie eduhie.
 Mwakpo nke ụlọ ọrụ ndị ọkaịkpe wakporo na Fraịdee ka onye ọrụ ya bụ Omoyele Sowore na onye na - agbachitere ya, Olawale Bakare erughị awa iri abụọ na anọ ka enyere ha ohere  mgbapụta bụ ihe kacha mma na-akwado megide ikike ikpe nke gọọmentị. onye ọrụ ahụ egosipụtala nlelị maka ya.
@@ -1094,14 +1093,42 @@ N'ikwu ya n'ụzọ ọzọ, DSS na-anwapụta ihe ndabere maka ijigide Sowore n
 Ihe kachasị dị ugbu a, ọ bụrụ na emebila mgbapụtaa, ọ bụ otu ụlọikpe ahụ nyere ọnọdụ iji kpebie nke ahụ. Ọnọdụ mgbapụta abụghị nke ndị DSS kama ọ bụ nke ndị ụlọ ikpe.
 Site na omume DSS, ndị ụlọ ọrụ ahụ ewerela ọrụ ụlọ ikpe, iwu na onye ọka ikpe n'okwu a. Nke a bụ ọdachi na aghụghọ nke ikpe.
 Ihe ndekọ akụkọ ihe mere eme nke DSS nke ọtụtụ ụgha, mmebi iwu ndị ruuru mmadụ, nlelị ụlọ ikpe, na mmejọ ụlọ ikpe na nsonso a, na-ekwu maka otu eziokwu, ya bụ, ndị na-arụ ọrụ na-enweghị isi na enweghị usoro mkpụrụ ndụ iji rube isi n'iwu.
-Onweghị atụmatụ otu ọ bụla jikọrọ Omoyele Sowore ịhazi ọgbaghara na mba a. Okwu amam-ihe kwuru na ihe ọjọ nke mmadụ so ya biri. DSS 'aha enweghị nkatọ maka mkpu ụgha bụ usoro nchedo onwe onye iji gbochie ajọ mkpamkpa nke omume mmegbu ha na-akpali na ndị Naịjirịa.
-ụlọ ọrụ ahụ na-eji nwayọọ nwayọọ na-ebuso ọchịchị onye kwuo uche ya agha n'ọrụ site na omume ya na-esighi ike na mwakpo na-eyi ọha egwu.
+Onweghị atụmatụ otu ọ bụla jikọrọ Omoyele Sowore ịhazi ọgbaghara na mba a.
+Okwu amam-ihe kwuru na ihe ọjọ nke mmadụ so ya biri.
+DSS 'aha enweghị nkatọ maka mkpu ụgha bụ usoro nchedo onwe onye iji gbochie ajọ mkpamkpa nke omume mmegbu ha na-akpali na ndị Naịjirịa.
+Ụlọ ọrụ ahụ na-eji nwayọọ nwayọọ na-ebuso ọchịchị onye kwuo uche ya agha n'ọrụ site na omume ya na-esighi ike na mwakpo na-eyi ọha egwu.
 Anyi na-arịọ ndị Naịjirịa nke oma ka ha tinye olu nke ha megide nnupu isi megidere ọchịchị onye kwuo uche ya anyị, ndị ọrụ anyị na nnwere onwe ikwu okwu dịka iwu anyị siri dị.
 Ọzọkwa, anyị na-achọ ntọhapụ nke mwakpo Omoyele Sowore nke iwu na-akwadoghị njide ya.
-okwu ndị so ihe nkiri obi agụ nke Genevieve ewepụrụ na ntụli OSCAR. 
-Obi agụ so n'ime ihe nkiri Africa iri nke edepụtara maka ntụli Oscar afọ a. Kemgbe a nuru ozi a, na e nwere okwu arụmụka na okwu imegide gbasara mkpebi Oscar.
-Taa, ndị Naịjirịa kpọtere ozi na ntinye akwụkwọ nke izizi ha kachasị mma nke Oscar, 'Obi agụ' agụmakwụkwọ nke Arts na Mgbakọ Sayensi kewapụrụ ya. Ndị otu ahụ kwuru na ihe nkiri ahụ nwere "mkparịta ụka Bekee buru oke ibu." nke ihe nkiri omere nke Nollywood, Genevieve Nnaji duziri, dị ka akwụkwọ akụkọ Los Angeles si kwuo na ụlọakwụkwọ na-ekwu na ihe ngosipụta nke ihe nkiri mba ụwa kwesịrị ịhapụ "usoro mkparịta ụka na-abụghị Bekee." "Obi agụ" so na ihe nkiri iri nke Africa nyere maka ntụli Oscar nke afọ a. "nke a abụghị nke mbụ ụlọ a na ewepu ihe nkiri mba ọzọ maka bekee; Na nso nso a, ihe nkiri Afrịka nke Afghanistan, Utopia, na ihe nkiri Israel nke 2007, bụ nleta otu egwu, ka ewepụrụ aha ha maka otu ihe ahụ, 'ka akụkọ Los Angeles na-akọ. Kemgbe akụkọ a pụtara ihe, e nwela arụmụka maka mkpebi Oscar imeghachị omume ya, onye ihe nkiri America, Ava Duvernay nọ na-eche ihe kpatara na ewezighi ihe nkiri ahụ ebe asụsụ gọọmentị Naịjirịa bụ bekee. O dere n'akara twita : "Iji na-ụlọ mmụta (Oscar), Ị wepuru ihe nkiri mbu nke Naịjirịa maka njirimara ha bụ bekee. Mana asụsụ bekee bụ asụsụ ala Naịjirịa. ị na-egbochi obodo a ka ọ ghara ịdị na-eme Oscar n'asụsụ mbụ ya? 'Na nzaghachị  Ava Duvernay na akara twita, Genevieve Nnaji kwuru, sị:' Abụ m onye isi nke obi agụ, ihe nkiri a na-anọchi anya ụzọ anyị si ekwu okwu dịka ndị Naịjirịa. Nke a gụnyere asụsụ Bekee nke emere dị ka àkwà mmiri dị n'etiti asụsụ ruru 500 ana-asụ n'obodo anyị; nke mere anyị otu Naịjirịa. 'Ọ bụ ihe dị iche na otu French si ejikọ obodo na mba ha chịburu. Anyị ahọrọghị ndị chịrị anyị. Dị ka ọ dị ugbu a, ihe nkiri a na nke dị ka ya bụ ihe onye Naịjirịa na-anya isi. "Nye onye na-eme ihe nkiri Naịjirịa, Deyemi, ọ họọrọ ịhụ akụkụ dị mma, na-ekwu, sị:" Apụrụ m iche ọtụtụ echiche obi ga-enwe na Netflix na njedebe nke taa! N'ụzọ ọ bụla ịlere ya anya na nke a bụ mmeri! . "" Iji na-eche na ụfọdụ ndị Naịjirịa n'ezie mere mkpesa na obi agụ nwere asụsụ Igbo nke ukwuu! Naanị ịnụ ndị Oscars ka ha kwuru na ọ nwere ọtụtụ Bekee? BS! N'ezie, adịghị m elek ndị Oscar anya ugbu a! Ha nwekwara ike gbanwee aha ahụ laghachị 'Asụsụ Ọzọ', 'onye nwere akara twita, Steven Chuks kwuru.
-Leekwa
+okwu ndị so ihe nkiri obi agụ nke Genevieve ewepụrụ na ntụli OSCAR . 
+'Lionheart' so n'ime ihe nkiri Africa iri nke edepụtara maka ntụli Oscar afọ a .
+Kemgbe a nuru ozi a, na e nwere okwu arụmụka na okwu imegide gbasara mkpebi Oscar.
+Taa, ndị Naịjirịa kpọtere ozi na ntinye akwụkwọ nke izizi ha kachasị mma nke Oscar, 'Lionheart' agụmakwụkwọ nke Arts na Mgbakọ Sayensi kewapụrụ ya.
+Ndị otu ahụ kwuru na ihe nkiri ahụ nwere "mkparịta ụka Bekee buru oke ibu . "
+Ihe nkiri omere nke Nollywood, Genevieve Nnaji duziri, dị ka akwụkwọ akụkọ Los Angeles si kwuo na ụlọakwụkwọ na-ekwu na ihe ngosipụta nke ihe nkiri mba ụwa kwesịrị ịhapụ "usoro mkparịta ụka na-abụghị Bekee.
+'Lionheart' so na ihe nkiri iri nke Africa nyere maka ntụli Oscar nke afọ a.
+Nke a abụghị nke mbụ ụlọ a na ewepu ihe nkiri mba ọzọ maka bekee;
+Na nso nso a, ihe nkiri Afrịka nke Afghanistan, Utopia, na ihe nkiri Israel nke 2007, bụ nleta otu egwu, ka ewepụrụ aha ha maka otu ihe ahụ, 'ka akụkọ Los Angeles na-akọ.
+Kemgbe akụkọ a pụtara ihe, e nwela arụmụka maka mkpebi Oscar imeghachị omume ya,
+Onye ihe nkiri America, Ava Duvernay nọ na-eche ihe kpatara na ewezighi ihe nkiri ahụ ebe asụsụ gọọmentị Naịjirịa bụ bekee.
+O dere n'akara twita : "Iji na-ụlọ mmụta (Oscar), Ị wepuru ihe nkiri mbu nke Naịjirịa maka njirimara ha bụ bekee.
+Mana asụsụ bekee bụ asụsụ ala Naịjirịa.
+Ị na-egbochi obodo a ka ọ ghara ịdị na-eme Oscar n'asụsụ mbụ ya?
+'Na nzaghachị Ava Duvernay na akara twita, Genevieve Nnaji kwuru, sị:' Abụ m onye nhazigharị nke 'Lionheart'
+Ihe nkiri a na-anọchi anya ụzọ anyị si ekwu okwu dịka ndị Naịjirịa.
+Nke a gụnyere asụsụ Bekee nke emere dị ka àkwà mmiri dị n'etiti asụsụ ruru 500 ana-asụ n'obodo anyị; nke mere anyị otu Naịjirịa.
+'Ọ dịghị iche na otu French si ejikọ obodo na mba ha chịburu.
+Anyị ahọrọghị ndị chịrị anyị.
+Dị ka ọ dị ugbu a, ihe nkiri a na nke dị ka ya bụ ihe onye Naịjirịa na-anya isi.
+Nye onye na-eme ihe nkiri Naịjirịa, Deyemi, ọ họọrọ ịhụ akụkụ dị mma, na-ekwu, sị:" Apụrụ m iche ọtụtụ echiche obi ga-enwe na Netflix na njedebe nke taa!
+N'ụzọ ọ bụla ịlere ya anya na nke a bụ mmeri! .
+I ji na-eche na ụfọdụ ndị Naịjirịa n'ezie mere mkpesa na obi agụ nwere asụsụ Igbo nke ukwuu!
+Naanị ịnụ ndị Oscars ka ha kwuru na ọ nwere ọtụtụ Bekee?
+Oke BS!
+N'ezie, adịghị m ele ndị Oscar anya ugbu a!
+Ha nwekwara ike gbanwee aha ahụ laghachị 'Asụsụ Ọzọ', otu onye twita, Steven Chuks kwuru.
+END-----------------------------------------------------------------------------------------END
+
+
 Ndị ntọakụkọ Sahara
 Mkpụchị: iji naanị N70, ị Pụrụ ịzụta ihe nkiri nke 'Genevive' obi agụ '
 Ntụnye okwu 0
