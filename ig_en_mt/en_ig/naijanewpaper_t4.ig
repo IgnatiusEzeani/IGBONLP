@@ -11,7 +11,7 @@ Ndị na-eri nri nwere nje ahụ ọkachasị nri ndị gho oghe n'abali maọb�
 Ọ gbakwụnyere: ''Ndị ọrụ ụlọ nyocha na-eme nlele ọbara nke ndị a na-enyo enyo na ha bu ọrịa Lassa fever, na-enweghị nlezianya kwesiri ekwesi, ụlọ ọgwụ maọbụ ndị ọrụ nkwado na-akwadebe maọbụ na-edozi ozu ndị enweghi nlezianya kwesiri ekwesi nwere ike ibute ọrịa ahụ.'
 Iji belata ihe egwu nke ọrịa Lassa fever, o nyere ndụmọdụ ndị a:.
 ' Gbaa mbọ hụ na a na-edebe gburugburu ebe obibi ọcha, i.e.
-`Ụlọ ọrụ mịnịstrị ahụ na-agbakwa mbọ ime ka ndị 'Diaspora Estate and Portal', ebe ndị Anambra bi na 'Diaspora' nwere ike ịdebanye aha n'ịntanetị iji chọpụta ike ha.
+Ụlọ ọrụ mịnịstrị ahụ na-agbakwa mbọ ime ka ndị 'Diaspora Estate and Portal', ebe ndị Anambra bi na 'Diaspora' nwere ike ịdebanye aha n'ịntanetị iji chọpụta ike ha.
 Debe gburugburu gị ọcha mgbe niile, ma gbochie oghere niile dị n’ụlọ gị iji gbochie oke ịbanye.
 Kpuchie ebe ị na-awụkọ ahịhịa gị ma tụfuo ya nke ọma.
 Ọha obodo kwesiri itinye ebe ikpofu ahịhịa ka ọ ghara ịdị nso n'ụlọ ebe obibi ha iji belata ohere inwe oke n’ime ulo.
@@ -28,14 +28,14 @@ GỌỌMENTỊ KWERE NKWA ỊRỤSỊ OKPOROỤZỌ OKPUNOEZE/UMEOJILIGWE NNEWI 
 Gọọmentị Anambra emela ka obi sie ndị isi Uruagu Nnewi ike na ọ ga-adị njikere ịrụsị okporoụzọ Okpunoeze/Umeojiligwe Uruagu Nnewi.
 Onye ndụmọdụ pụrụ iche (SA) nye Gọvanọ na Nnyocha Mmezi a kpọrọ Budget Monitoring and Efficiency, Maazị Melie Onyejepu kwuru nke a mgbe ọ na-agwa ndị otu ahụ okwu mgbe ọ gasịrị njem nlegharị anya na mwugharị  okporo ụzọ mmiri.
 Maazị Onyejepu kwupụtara mkpebi nke gọọmentị Gọvanọ Obiano iji hụ na okporoụzọ ndị ahụ dị mma, na-arịba ama na kemgbe ka onye ọrụ ngo ahụ nọ na saịtị ahụ.
-``Akụnaụba nke steeti Anambra na-eme nke ọma n’ihi na Gov. Willie Obiano etinyela ọtụtụ ego na nchekwa, mmụta, ezi ụzọ, na mpaghara ndị ọzọ dị mkpa.
+Akụnaụba nke steeti Anambra na-eme nke ọma n’ihi na Gov. Willie Obiano etinyela ọtụtụ ego na nchekwa, mmụta, ezi ụzọ, na mpaghara ndị ọzọ dị mkpa.
 Dịka o si kwuo, ụzọ ndị ahụ gburu oge n'ihi oke mmiri ozuzo, nrụgharị nke ọwa mmiri yana mmụba ike nke 'pavement'.
 SA ahụ kwere ha nkwa na Gọọmentị na-agba mbọ ịrụcha ụzọ ndị ahụ tupu oge udu mmiri.
 Onyeisi obodo Uruagu, Maazị Charles Nwoye toro Gov. Obiano. 
 O kwuru na Anambra bụ steeti kasị nwe nchebe na Naịjiria nke nwere ezigbo okporo ụzọ.
 PG kwuru na n'agbanyeghị na ndị obodo na-ekele ekele maka ntinye aka nke gọọmentị steeti ahụ, mana o kwusiri ike mkpa ọ dị iji hụ na arụchara okporoụzọ tupu oge udummiri.
 Onye nwere ego n'Uruagu Nnewi, Maazị Ben Aghazu kwere nkwa na obodo ahụ ga-enye ụlọ ọrụ ahụ ihe enyemaka ha chọrọ iji rụchaa ọrụ ahụ.
-``N'ikike m, enyela m ebe obibi maka ndị ọrụ iji hụ na ha nọ na saịtị ahụ.
+N'ikike m, enyela m ebe obibi maka ndị ọrụ iji hụ na ha nọ na saịtị ahụ.
 Aghazu toro mbọ Onyejepu gbara iji hụ na gọọmentị etiti tinyere aka n'okporo ụzọ dị '100Foot', na Nnewi.
 Onye ọzọ nwere ego n'obodo ahụ, Maazị Agu Okonkwo toro Onyejepu maka ịgba mbọ hụ na okporoụzọ ndị ahụ gara n'ihu na-adọta ndị gọọmentị.
 O kwukwara na obodo ahụ na-echegbu onwe ha n'ihi na ájá ahụ a wụrụ n'okporo ụzọ ndị ahụ na-ewetara ndị bi n'obodo ahụ nsogbu ahụike.
@@ -49,14 +49,14 @@ Nke a sitere na enweghi ike mpaghara na-emepụta nri iji ruo ahịa ngwa ngwa n
 O kwuru na FG, mgbe ahụ, mepere mkparịta ụka ya na nnukwu ụlọ ọrụ nkwado abụọ- World Bank na African Development dị n'Abidjan.
 Onyejekwe, onye nnukwu enyemaka pụrụiche (SSA) nye Gọvanọ n'Ọrụ, kwuru na ọ bụ iji merie ọgbaghara a ka FG mgbe ahụ, chọrọ ịrụ ọrụ ahụ na steeti iri na asatọ.
 O kwuru na e kpebiri na steeti ise- Anambra, Borno, Benue, Taraba na Cross River Steeti ga-enweta nkwado site n'aka African Development Bank ebe ndị ọzọ ga-enweta ego site n'aka Ụlọakụ Mba Ụwa.
-``Ndị ADB anabatara ịkwado ọrụ ndị a, na-ekwe nkwa na steeti ise ga-enweta nde dọla iri ise n'otu n'otu.
+Ndị ADB anabatara ịkwado ọrụ ndị a, na-ekwe nkwa na steeti ise ga-enweta nde dọla iri ise n'otu n'otu.
 Ndị isi ha emeela njem nleta abụọ n'Anambra Steeti, oge ha na ndị mmadụ sitere na mpaghara ndị ahụ kpakọrịtara.
 'Ha niile ekwekọrịtala ịrụkọ ọrụ ọnụ iji rụpụta ihe ọma n'ọrụ a.
 Onyejekwe kwuru na ọrụ ngo ndị a bụ iji rụọ ụzọ gara ugbo nke ga-enwe akụrụngwa dịka ụlọ ebe a na-ere ahịa, ụlọ ebe a na-ere ọgwụ anụmanụ, ebe ọrụ nchekwa okporo ụzọ na ihe e ji echekwa ihe.
 A ga-azụta obodo ndị ahụ na-erite uru na njikwa okporo ụzọ na mmekorita ya na otu mmadụ nwe maka inye aka ụgbọ njem maka ibupụ ihe ubi.
 Ọrụ ahụ ga-edubatakwa ndozi ndị mmadụ, ndị nwere ike ịbụ ndị a chụpụrụ n'usoro maka ịnye ọrụ.
 O kwenyere na Gọọmentị Anambra gosipụtara nkwenye site n'ịgbalịsi ike imezu ihe niile dị na mpaghara iji nweta ego maka ọrụ ahụ.
-``Ebe ọnọdụ chọrọ ka steeti niile sonyere ga-eweta pasenti 8 nke ego mbụbata, steeti enyefeelarịị nke a.
+Ebe ọnọdụ chọrọ ka steeti niile sonyere ga-eweta pasenti 8 nke ego mbụbata, steeti enyefeelarịị nke a.
 'N’ezie, ego ndị Anambra tinyere n'ọrụ iji wee mụọ ọmụmụ ntule na ihe omume ndị ọzọ e chere na ha dị mkpa maka ịtụle ọrụ a sitere n’aka gọọmentị steeti.
 Onyejekwe kwuru na gọọmentị Anambra Steeti emefuola nde naịra iri asatọ, ihe niile ka dị na pasenti asatọ nke steeti Anambra ketara.
 'Anyị na-atụ anya na ịkwụ ụgwọ ọzọ sitere n'aka gọọmentị ga-arụ ọrụ ọzọ dị oke mkpa; nke a bụ atụmatụ ahụ na mmejupụta ọrụ ahụ n'ụzọ zuru ezu, mgbe a na-enyocha ego ahụ maka mmezu nke ọrụ dị iche iche.
@@ -120,19 +120,19 @@ O kwuru na nke a na-enyere ha aka ito ngwa ngwa, buo ibu ma mepụta ihe karịa
 Okpalaeke kwuru na ha na-arụkwa nhazi mkpụrụ akị maka nri anụmanụ, na-azụta ihe onye ọbụla ga-ewetara ha ọnụ ahịa mara mma.
 Onye ọrụ nke Eagle Food Processing Industry Nigeria Ltd.
 Maazị Samuel Ezennia kwuru na MD ha bụ ezigbo onye na-ewe ọrụ.
-``Ọ na-akwụ ụgwọ ọrụ n’oge; na-enwe mmekọrịta dị mma n'etiti ndị ọrụ a maara na ha na-arụsi ọrụ ike.
+Ọ na-akwụ ụgwọ ọrụ n’oge; na-enwe mmekọrịta dị mma n'etiti ndị ọrụ a maara na ha na-arụsi ọrụ ike.
 Ọ tara ndị umengwụ ahụhụ.
 MEE NNWALE IGUZOSI IKE N’EZI IHE TUPU ỊMALITE IWUGHACHI- AGUPUGO NA-AGBA NDỊ ỌDACHI ỌKỤ ỌGBỤGBA NKE AHỊA METỤTARA UME 
 Onyeisi nchịkwa, nke Anambra State Emergency Management Agency (SEMA), Mazị CY Agupugo agwala ndị nwere ụlọ ahịa nke ọdachi ọkụ nke ahịa Mgbuka Obosi metụtara ka ha nwalee iguzosi ike n'ezi ihe ha tupu ha ewughachi ụlọ ahịa ha ọkụ gbara.
 Agupugo nyere ntuzi aka ahụ mgbe ndị otu e guzobere n'ọkụ gbara n'ahịa Mgbuka Obosi na nso nso a mere nleta n'akụkụ ahịa ahụ ọkụ gbara.
 Onyeisi ụlọ ọrụ ahụ, bụ onye jikwa ọrụ dịka odeakwụkwọ nke otu ahụ chọpụtara na ọ bụ ihe ọjọọ ịmalite ịrụ ụlọ ahịa na nnukwu ụlọ ahịa na-enweghị ule iguzosi ike n'ezi ihe nke ga-esite n'aka Physical Planning Board nke steeti ahụ na ndị ọzọ dị mkpa o metụtara.
-``Anyị niile kwesiri ime ihe kwesiri ekwesi tupu anyị ebido iwugharị ụlọ ahịa. 
+Anyị niile kwesiri ime ihe kwesiri ekwesi tupu anyị ebido iwugharị ụlọ ahịa. 
 Amaara m na anyị na-eme ngwa ngwa ịrụghachi, ka anyị wee nwee ike ịlaghachi n'azụmaahịa anyị, mana anyị ga-ebu ụzọ mee ihe ziri ezi," o kwuru. 
 Onyeisi nchịkwa ụlọ lọrụ Anambra State Fire Service, Maazị Ben Chiobi kwuru na ahịa ahụ dị ndị Anambra ezigbo mkpa, ebe ndị ntinye ego sitere n'akụkụ ụwa dị iche iche na-abịa ebe ahụ ịzụ ahịa.
 Dịka o si kwuo, ọ dị mkpa na a ga-elebara ihe ịma aka ndị dị n'ahịa anya ozigbo.
 Chiobi katọrọ ikpofu mmanụ ụgbọala mebiri emebi na ihe ndị ọzọ adịghị mma n'ime na n'akụkụ ahịa ahụ.
 O kwuru na gọọmentị steeti site n'ụlọ ọrụ dịka ụlọọrụ ọkụ, SEMA na ndị metụtara ya ga-enyere ndị isi ahịa aka ịhụ na a ga-etinye iwu steeti ahụ.
-``Ọ bụ mmasị nke gọọmentị ịhụ na e gboro nsogbu ọbụla chere ha ihu dịka gọọmentị steeti ga-enyere gị aka.
+Ọ bụ mmasị nke gọọmentị ịhụ na e gboro nsogbu ọbụla chere ha ihu dịka gọọmentị steeti ga-enyere gị aka.
 'Iji zeere ihe ga-eme n'ọdịnihu na steeti ahụ, e nwere usoro maka iwu ụlọ ma usoro ahụ chọrọ ka i nweta nnabata gọọmentị," Chiobi kwuru.
 Onyeisi oche Mgbuka Obosi, onye bụkwa onye otu a, Maazị Samuel Okey Ezeobodo, mgbe ọ na-enwere ndị ọkụ dakwasịrị ọmịiko, kelere gọọmentị steeti maka igosipụta nchegbu ha.
 Ọ gbara ndị isi ahịa ume ka ha gbaa mbọ hụ na ndị mmadụ hiwere ezigbo ụlọ nke ga-abara ndị ahịa na gọọmentị uru.
@@ -161,7 +161,7 @@ Kọmịshọna ahụ kwuru na ebumnuche kọmitii na-achịkwa ọgwụ bụ ij
 Dr Okpala jara ya mma maka nleta ahụ, na-emesi ya obi ike na mịnịstrị ahụ na gọọmentị ga-agbakọ aka ma kwado ya.
 Na mbụ, Maazị Idris kwuru na nleta ya bụ ịchọ maka nkwado na ngalaba mịnịstrị ahụike iji lụọ ọgụ megide ndị mgbere ọgwụ ọjọọ na mmebi iwu.
 O kwuru na mịnịstrị ahụike bụ otu n'ime ndị nkenye ha, kwenye na ha ga-enyere ha aka n'ọgụ megide ọgwụ ọjọọ na ịtụ mgbere ya na steeti.
-``NDLEA apụghị ime ya naanị; ihe kpatara anyị ji bịa ịchọ mmekọta na ime ka e mezuo ma mepụta echiche anyị.
+NDLEA apụghị ime ya naanị; ihe kpatara anyị ji bịa ịchọ mmekọta na ime ka e mezuo ma mepụta echiche anyị.
 'Anyị jidere mmadụ narị abụọ na iri anọ na itoolu ndị a na-enyo enyo, jidere ọgwụ ike dị kg 426.5988 ma nweta ikpe iri atọ na asaa na 2019,'' ọchịagha ahụ kwuru.
 Adinuba bụ kọmịshọna na-ahụ maka ozi a kpọrọ Information and Public Enlightenment, nke steeti Anambra 
 o toro nkwado nke gọọmentị steeti ahụ n'ọgụ megide enweghi nchekwa, ịtụ mgbere ọgwụ ọjọọ yana ụdị ọchịchị kọmishọna ahụ, na-agba ya ume ịnọgide na-agba mbọ.
