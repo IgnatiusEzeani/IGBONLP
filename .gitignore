@@ -108,9 +108,9 @@ venv.bak/
 #.data/
 #data/
 models/
-working/
-ig_monoling/
-ig_parallel/
-resources/
+.working/
+.ig_monoling/
+.ig_parallel/
+.resources/
 
 .vector_cache/
