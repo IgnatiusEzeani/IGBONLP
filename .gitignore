@@ -108,7 +108,7 @@ venv.bak/
 #.data/
 #data/
 models/
-/working/
+working/
 /ig_monoling/
 /ig_parallel/
 /resources/
