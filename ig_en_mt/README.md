@@ -1,10 +1,20 @@
-
-
 # Igbo-English Machine Translation: An Evaluation Benchmark
 
 So far, this repository contains a collection of human corrected and validated Igbo monolingual data and human-translated Igbo-English sentence pairs for training machine translation systems as presented in this paper:
 [Igbo-English Machine Translation: An Evaluation Benchmark](https://arxiv.org/abs/2004.00648). Work on the comparative experiments for the Ig-En MT baselines are still on-going and will be included soon. 
-
+---
+## Citation
+```bibtex
+@misc{ezeani2020igboenglish,
+    title={Igbo-English Machine Translation: An Evaluation Benchmark},
+    author={Ignatius Ezeani and Paul Rayson and Ikechukwu Onyenwe and Chinedu Uchechukwu and Mark Hepple},
+    year={2020},
+    eprint={2004.00648},
+    archivePrefix={arXiv},
+    primaryClass={cs.CL}
+}
+```
+---
 ## Repo Content:
 This repo contains both the **monolingual** and **parallell (Ig-En)** data:
 ### Monolingual data:
@@ -84,16 +94,4 @@ Joseph Achuzie, the Biafran brave man is gone.
 Dapchi: Government  has not defeated Boko Haram and Massob
 Tottenham look forward to lifting the FA cup in defeating Rochadale.
 Son Heung-min, Fernando Llorente and Kyle Walter-Peters of Tottenham beat Rochadale mercilessly in their yesterday's FA cup competition.
-```
-
-## Citation
-```bibtex
-@misc{ezeani2020igboenglish,
-    title={Igbo-English Machine Translation: An Evaluation Benchmark},
-    author={Ignatius Ezeani and Paul Rayson and Ikechukwu Onyenwe and Chinedu Uchechukwu and Mark Hepple},
-    year={2020},
-    eprint={2004.00648},
-    archivePrefix={arXiv},
-    primaryClass={cs.CL}
-}
 ```
