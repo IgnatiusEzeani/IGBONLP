@@ -1,4 +1,18 @@
 # Data Sources and other details
+---
+## Citation
+```bibtex
+@misc{ezeani2020igboenglish,
+    title={Igbo-English Machine Translation: An Evaluation Benchmark},
+    author={Ignatius Ezeani and Paul Rayson and Ikechukwu Onyenwe and Chinedu Uchechukwu and Mark Hepple},
+    year={2020},
+    eprint={2004.00648},
+    archivePrefix={arXiv},
+    primaryClass={cs.CL}
+}
+```
+---
+
 Full summary is contained in [summary.txt](https://github.com/IgnatiusEzeani/IGBONLP/blob/master/ig_en_mt/ig_data/summary.txt)
 * **eze_goes_to_schoo**l: [Master's Thesis; UZOALOR, JOY UCHE]
 	- Source text = 125.5 KiB
