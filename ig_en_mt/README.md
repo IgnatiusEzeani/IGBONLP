@@ -8,7 +8,7 @@ So far, this repository contains a collection of human corrected and validated I
 ## Repo Content:
 This repo contains both the **monolingual** and **parallell (Ig-En)** data:
 ### Monolingual data:
-The content summary is presented below while the source details can be found [here](https://github.com/IgnatiusEzeani/IGBONLP/blob/master/ig_en_mt/ig_data/summary.txt):
+The content summary is presented below while the source details can be found [here](https://github.com/IgnatiusEzeani/IGBONLP/tree/master/ig_monoling):
 | Filename | Sentences | Tokens | UniqTkns|
 | --- |  ---: | ---: | ---: |
 |eze_goes_to_school.txt | 1,272 | 25,413 | 2,616 |
