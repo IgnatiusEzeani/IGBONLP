@@ -38,7 +38,7 @@ The content summary is presented below while the source details can be found [he
 ### Parallel (IG-EN) data:
 
 
-Work on the baseslines is on-going following the approach used [Facebook Research FloRes Project](https://github.com/facebookresearch/flores) and wil be released in this repo when ready.
+Work on the baseline model is on-going following the approach used [Facebook Research FloRes Project](https://github.com/facebookresearch/flores) and wil be released in this repo when ready.
 
 <!-- Code to reproduce the baselines is available at: https://github.com/facebookresearch/flores -->
 <!--
