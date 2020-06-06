@@ -12,7 +12,8 @@ So far, this repository contains a collection of human corrected and validated I
     year={2020},
     eprint={2004.00648},
     archivePrefix={arXiv},
-    primaryClass={cs.CL}
+    primaryClass={cs.CL},
+    url={https://arxiv.org/abs/2004.00648}
 }
 ```
 ---
