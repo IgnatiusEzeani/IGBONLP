@@ -7191,8 +7191,7 @@ LASEMA na ndị otu nzọpụta ndị ọzọ na Legosi nọ anọ ebe ahụ ibu
 Uduaghan, Ogboru mara onyeisi nlekọta, Okowa, aka dị ka ụlọ ikpe ntụli aka natara mkpesa 51.
 Great Ogboru, onye Ji otu 'All Progressives Congress' zọọ ọkwa gọvanọ na ntụli aka 2019, Delta Steeti, gbakwuaziri akwụkwọ na-ama INEC aka make ịkpọpụta Ifeanyị Okowa, Gọvanọ Delta Steeti, dị ka onye meriri na ntụli aka gọvanọ e mere na March 9.
 Emmanuel Uduaghan, Gọvanọ Delta Steeti pụrụ na nso a na onye ji 'All Progressives Congress' zọ ọkwa sineti nke Delta Saụt, agbaala James Manager nke 'Peoples Democratic Party (PDP) ' ha abụọ zọrọ ọkwa akwụkwọ na 'Delta State Election Petitions Tribunal, ' na-ama mkpọpụta ndị 'Independent Electoral Commission (INEC) kpọpụtara ya dị ka onye meriri na ntụli aka' National Assembly' e mepuru na Febrụwarị 23 aka.
-N' otu aka ahụ, Great Ogboru, ji APC zoo ọkwa Gọvanọ na steetỌzọkwa, Joel-Onowakpo Thomas, onye ji otu APC zọọ ọkwa ụlọ nnọchiteanya Isoko 'Federal Constituency' 
-<START>
+N' otu aka ahụ, Great Ogboru, ji APC zoo ọkwa Gọvanọ na steetỌzọkwa, Joel-Onowakpo Thomas, onye ji otu APC zọọ ọkwa ụlọ nnọchiteanya Isoko 'Federal Constituency'
 Gọọmenti 'United States' amaala ọkwa ịrụkọ ọrụ ọnụ ya na 'Tony Elumelu Foundation' iji kwalite atụmatụ ọrụ aka na Naijiria dị ka ụzọ a ga-esi weta mbawanye ọrụ, ọganihu akụnụba na nkwudosi ike ndọrọndọrọ ọchịchị n' obodo a.
 N' ịma ọkwa a na Legosi n' ụbọchị Tọzdee, onye nnọchianya ukwu U. S., Claire Pierangelo, kwuru na site ego enyemaka mmekọrịta ọhaneze dị $105,000, ụlọ ọrụ nnọchianya kwadoro ọzụzụ ìgwè ndị ọrụ aka si ọwụwa anyanwụ Naijiria n' okpuru atụmatụ 'Tony Elumelu Foundation' nke 2019.
 O kwuru, 'N' ịrụkọ ọrụ ọnụ a, anyị họpụtara ndị ụlọ ọrụ nnọchianya U. S./ndị mkpakọrịta TEF 20 ịnatawanye ọzụzụ n' ọrụ aka site atụmatụ ogologo otu ụbọchị n' ụlọ ọrụ nnọchianya ukwu U. S. nke ga-eji ọtụtụ ngwa nke' Young African Leaders Initiative ' tinyere ndị gụchara na 'Mandela Washington Fellowship'mere ihe. 
@@ -7216,18 +7215,63 @@ Uwaifo boro ọgwụ egwu nwaanyị a ebubo izuru ọrụ ọgwụgwụ isi ya, 
 Victor Uwaifo na Simi
 Ọgwụ egwu na ọkpọ ụbọ onye Naijiria a ma ama, Sa Victor Uwaifo, ekpughela ihe mere o jiri gbaa ọgwụ onye Naijiria, Simisola Bolatito Ogunleye, aka Simi, akwụkwọ nde N50.
 'Uwaifo boro ọgwụ egwu nwaanyị a ebubo izuru ọrụ ọgwụgwụ isi ya, 'Joromi'
-N' ajụjụ ọnụ Sahara Reporters gbara Uwaifo ka ọ mere obere oge ọ kụsiri egwu na 'National Festival of Arts and Culture' e mere n' Edo Steeti na nso a, o kwuru: 'Anyị anọrọla n' ụlọ ikpe. Agbara m ya akwụkwọ nde N50 na 'Federal High Court'. Ha ga-abịawa n' ụlọ ikpe.'
-Ka Sahara Reporters jụrụ ya ma Simi ọbịakwutela ya n' onwe ya, ọ zara: 'Mba, nanị site n' ndị ọka ikpe ya. Anyị ga-ezute n' ụlọ ikpe.'
+N' ajụjụ ọnụ Sahara Reporters gbara Uwaifo ka ọ mere obere oge ọ kụsiri egwu na 'National Festival of Arts and Culture' e mere n' Edo Steeti na nso a, o kwuru: 'Anyị anọrọla n' ụlọ ikpe.
+Agbara m ya akwụkwọ nde N50 na 'Federal High Court'.
+Ha ga-abịawa n' ụlọ ikpe.'
+Ka Sahara Reporters jụrụ ya ma Simi ọbịakwutela ya n' onwe ya, ọ zara: 'Mba, nanị site n' ndị ọka ikpe ya.
+Anyị ga-ezute n' ụlọ ikpe.'
 N' otu afọ gara aga, Uwaifo gwara Sahara Reporters na Simi nọ na nsogbu maka ekwupughiri egwu a, 'Joromi, ' nke ọ kụgharịrị.
-O kwuola, ka a jụrụ ya ma ọ ga-eme ihe ọ bụla gbadoro ụkwụ n' iwu megide Simi, 'N' otu n' otu, agaghị m akpụga onye ọbụla ụlọ ikpe n' otu oge. Amaghị m ma ọ bụ nwoke ma ọ bụ nwaanyị; amara m na ọ bụ mana ama m na mmadụ kwụ ya n' azụ.
-E zitere LP dịka ihe ekele; aka m na-ele ya anya mana ha na-akwado ịbịa Benin ịhụ m. Ruo ugbua, ha abịabeghi. Ya bụ, m ga-akwụsị nke ahụ. 'Joromi, bụ aha. Aha ahụ adịghị na mbụ. Benin enweghị 'J' n' asụsụ ha. Onwe nke bidoro na 'J' na Benin ọ bụ adịgboroja. Okwu mgbochiume ọbụla na-eji mkpụrụ ụdaume ebido. Ọmụma atụ, ọ bụrụ na m jiri njirimara nke òtù n' ime mmanya ọtọ bịrịbịrị ndị a, ọ dịghị mma. Ya bụ Simi nọ na nsogbu.' Nlafo chi Walter nke si n' aka Rudolph Ogoo Okonkwọ Nlafo chi ndị Naịjirịa-Amerika nwụrụ n' Amerịka bụ ihe ọzọ. Ụfọdụ were ya ka nọ for chi kwesiri ekwesi. Ndị enyi na ndị mmekọrịta na-emekarị ebere ma ghọta mkpa ọdị ịnakọ ego iji kwado ezinaụlọ nakwa oge ụfọdụ, iji bunata ozu ahụ Naijiria. N' okirikiri Boston mepere emepe e nwere onye Liberia nke hụrụ ịbịa pati ndị Naịjirịa n' anya. (ka anyị kpọọ ya Walter, makana enwetabeghi ikike ịkpọ ezigbo aha ya.) Ọ hụrụ egwu Naijiria n' anya, osikapa jọlọf, pepe supu, egwu shoki na ikiri ndị Naịjirịa ka ha na-efe dọla ka mmiri na pati ndị a. Tụkwasị ndị Naịjirịa nọ n' Amerịka obi, ha na-enwe ihe ọ bụla ka ibe iji kpọọ pati - nkupụta nwa, ncheta agbamakwụkwọ, ncheta ọmụmụ, mpụta n' ụlọ akwụkwọ, isi mmadụ laa n' udo, nlafo chi, wee dịrị gawa. Particularly ọ bụla bụ ọpụrụ iche mana ọnweghi nke bụ ọpụrụ ka nlafo chi. Ọ bụrụ na igbazite nnukwu ụlọ iji rie oriri ncheta afọ ọmụmụ nke 50 ma ọ bụ ncheta agbamakwụkwọ nke 25, ma ọ bụ ọbụna ncheta ọmụmụ nke afọ 5 nwa gị, ma ọ bụ nkuputa nwa gị n' ụlọ ụka, mmetụta nke ọha bụ na i nwere ego ị ga-emefu. Ndị mmadụ ka ga-abịa, ñụrịa, ma ọbụna nwe ike inye gị onyinye, mana anaghị ahụ ya na ka iwu. Mana mgbe ọ bụ nlafo chi ọnwụ mmadụ, ebumnuche pati ahụ site na ncheta ruo omume ya bụ ịtụkọta ego iji nyere onye nwụrụ anwụ aka ka o ruo ụlọ na ịga akwamozu onye nwụrụ anwụ. MC na-eme ka nke a doo anya kwa nkeji iri ọbụla nke mmeme ahụ. Ka ọ bụ na a tụrụ anya na ndị ga-eweta ihe ' ndị nchịkọta na-ahụ na enwere ọtụtụ ihe oriri na ihe ọñụñụ kwesiri ihe ndị mmadụ ga-eweta.
-Ihe ọzọ e ji mara nlafo chi, n' abụghị na ọtụtụ n' ime ndị e ji maka ha eme mmemme abịanubeghi Amerịka, bụ na enwere nghọta e deghị ede dị n' etiti ndị nchikọba na ndị na-abịa mmemme na e dere ihe ọ bụla onye bịara mmemme nyere n' akwụkwọ, hụwa ya ama ma chekwaba ya ebighị ebi maka mgbe ọ ga-adị mkpa ịkwụghachi ụgwọ amara a. N' ala Igbo, ha nwere ọbụna ilu ọ dabere na ya. Ọ na-asị: ihe nwoke nyere ibe ya bụ ego ọ ga-akwụ akwụ ka o binyere ya.
-Akụkụ ikpeazụ a kọwara ihe kpatara mbawanye na nlafo chi. Ọ dị ka ịtụ akawo. Ihe inwere ime bụ ichere oge gị ịnara ego ị tinyere. Ndị nne na nna ha nwụrụla tupu ha abiawa Amerịka anaghị egbu oge ọ bụla imere nwanne nna/nne ha nwoke ma ọ bụ nwaanyị nlafo chi, n' agbanyeghi ma ha adị nso ma ọ bụ na ha adịghị. Ụfọdụ ga-eme mmemme nlafo chi nwunye nna ha na di nne ha, ọbụnadị na ha adịghị n' udo mgbe ha nọ ndụ. Ihe ha nwedebere ikwu bụ na ndị mụrụ ha nwụrụ ka ha pere mpe ma ọ bụ nwanne nne/nna nwoke a ma ọbụ nwaanyị a, dị nne a, nwunye nna a na nwanne nwoke a batara wee zụọ ha.
-Onye ka I bụ gị na onye mmadụ ya nwụrụ anwụ ịrụ ụka? E kwuwe ekwuwe, mmụba ọnụ akwamozu n' ụlọ pụtara na n' agbanyeghi onye nwụrụnụ, ozugbo ọkpụkpọ òkù elekere atọ nke ụtụtụ batara, ịna ego ga-esochi ya. Inwe onye nọ obodo oyibo pụtara ịgbalị maka akwamozu bụ eji ama atụ n' obodo oyibo.
-Nlafo chi dị ebe niile nke ndị mmadụ na-emezi ya ka ọ dị mfe site n' ikwu ihe dị ka nlafo chi Peter ma ọbụ nlafo chi Angela, kama inye aha kwesiri ya dị ka nlafo chi nna Peter ma ọ bụ nne Angela. Ọ na-ebelatara onye ọbụla isi ọwụwa ịchọpụta ihe jikọrọ onye na onye.
-Ọ bụrụ na i so n' òtù ndị na-eje nlafo chi, a tụrụ anya n' aka gị na, na nso nso ma ọ bụ e mechaa, na ị ga-enwe nlafo chi nke gị. Otu onye nwere ihe isi ike ịrụsị ụlọ ya n' ime obodo bọlitere nlafo chi nke ya site ọnwụ nne nne ya.
-Na nso nso a, e wepula ibu n' obi ịna ụlọ maka akwamozu. A na-anabatazị na onye ahụ nke nakọrọ ego niile a na nlafo chi ejeghi ụlọ ma ọlị maka ya bụ akwamozu. Na ọ zigara ego ahụ n' ụlọ ka ha si eche juru afọ.
-Nlafo chi ndị Naịjirịa-Amerịka nwụrụ na Amerịka bụ ihe dịrị onwe ya iche. Ụfọdụ enwe ya ka nlafo chi ka dị nkwesi. Ndị enyi na ndị mkpakọrịta na-emekarị ebere ma ghọta mkpa ọ dị ịtụkọ ego kwado ezinaụlọ nakwa oge ụfọdụ, ibuna ahụ onye ahụ Naịjirịa. N' ezie na nso a e nwere mbawanye na ntamu banyere ndị Naịjirịa-Amerịka inweta inshọọransị maka ndụ ga-ahụ maka ibunata ahụ ụlọ, ha ọ masikarịa ha, ma hapụrụ ndị ha hapụrụ ihe.
+O kwuola, ka a jụrụ ya ma ọ ga-eme ihe ọ bụla gbadoro ụkwụ n' iwu megide Simi, 'N' otu n' otu.
+Agaghị m akpụga onye ọbụla ụlọ ikpe n' otu oge.
+Amaghị m ma ọ bụ nwoke ma ọ bụ nwaanyị; amara m na ọ bụ mana ama m na mmadụ kwụ ya n' azụ.
+E zitere LP dịka ihe ekele; aka m na-ele ya anya mana ha na-akwado ịbịa Benin ịhụ m.
+Ruo ugbua, ha abịabeghi.
+Ya bụ, m ga-akwụsị nke ahụ.
+'Joromi, bụ aha.
+Aha ahụ adịghị na mbụ.
+Benin enweghị 'J' n' asụsụ ha.
+Onwe nke bidoro na 'J' na Benin ọ bụ adịgboroja.
+Okwu mgbochiume ọbụla na-eji mkpụrụ ụdaume ebido.
+Ọmụma atụ, ọ bụrụ na m jiri njirimara nke òtù n' ime mmanya ọtọ bịrịbịrị ndị a, ọ dịghị mma.
+Ya bụ Simi nọ na nsogbu.'
+Nlafo chi Walter nke si n' aka Rudolph Ogoo Okonkwọ
+Nlafo chi ndị Naịjirịa-Amerika nwụrụ n' Amerịka bụ ihe ọzọ.
+Ụfọdụ were ya ka nọ for chi kwesiri ekwesi.
+Ndị enyi na ndị mmekọrịta na-emekarị ebere ma ghọta mkpa ọdị ịnakọ ego iji kwado ezinaụlọ nakwa oge ụfọdụ, iji bunata ozu ahụ Naijiria.
+N' okirikiri Boston mepere emepe e nwere onye Liberia nke hụrụ ịbịa pati ndị Naịjirịa n' anya.
+(ka anyị kpọọ ya Walter, makana enwetabeghi ikike ịkpọ ezigbo aha ya.)
+Ọ hụrụ egwu Naijiria n' anya, osikapa jọlọf, pepe supu, egwu shoki na ikiri ndị Naịjirịa ka ha na-efe dọla ka mmiri na pati ndị a.
+Tụkwasị ndị Naịjirịa nọ n' Amerịka obi, ha na-enwe ihe ọ bụla ka ibe iji kpọọ pati - nkupụta nwa, ncheta agbamakwụkwọ, ncheta ọmụmụ, mpụta n' ụlọ akwụkwọ, isi mmadụ laa n' udo, nlafo chi, wee dịrị gawa.
+Particularly ọ bụla bụ ọpụrụ iche mana ọnweghi nke bụ ọpụrụ ka nlafo chi.
+Ọ bụrụ na igbazite nnukwu ụlọ iji rie oriri ncheta afọ ọmụmụ nke 50 ma ọ bụ ncheta agbamakwụkwọ nke 25, ma ọ bụ ọbụna ncheta ọmụmụ nke afọ 5 nwa gị, ma ọ bụ nkuputa nwa gị n' ụlọ ụka, mmetụta nke ọha bụ na i nwere ego ị ga-emefu.
+Ndị mmadụ ka ga-abịa, ñụrịa, ma ọbụna nwe ike inye gị onyinye, mana anaghị ahụ ya na ka iwu.
+Mana mgbe ọ bụ nlafo chi ọnwụ mmadụ, ebumnuche pati ahụ site na ncheta ruo omume ya bụ ịtụkọta ego iji nyere onye nwụrụ anwụ aka ka o ruo ụlọ na ịga akwamozu onye nwụrụ anwụ.
+MC na-eme ka nke a doo anya kwa nkeji iri ọbụla nke mmeme ahụ.
+Ka ọ bụ na a tụrụ anya na ndị ga-eweta ihe ' ndị nchịkọta na-ahụ na enwere ọtụtụ ihe oriri na ihe ọñụñụ kwesiri ihe ndị mmadụ ga-eweta.
+Ihe ọzọ e ji mara nlafo chi, n' abụghị na ọtụtụ n' ime ndị e ji maka ha eme mmemme abịanubeghi Amerịka, bụ na enwere nghọta e deghị ede dị n' etiti ndị nchikọba na ndị na-abịa mmemme na e dere ihe ọ bụla onye bịara mmemme nyere n' akwụkwọ, hụwa ya ama ma chekwaba ya ebighị ebi maka mgbe ọ ga-adị mkpa ịkwụghachi ụgwọ amara a.
+N' ala Igbo, ha nwere ọbụna ilu ọ dabere na ya.
+Ọ na-asị: ihe nwoke nyere ibe ya bụ ego ọ ga-akwụ akwụ ka o binyere ya.
+Akụkụ ikpeazụ a kọwara ihe kpatara mbawanye na nlafo chi.
+Ọ dị ka ịtụ akawo.
+Ihe inwere ime bụ ichere oge gị ịnara ego ị tinyere.
+Ndị nne na nna ha nwụrụla tupu ha abiawa Amerịka anaghị egbu oge ọ bụla imere nwanne nna/nne ha nwoke ma ọ bụ nwaanyị nlafo chi, n' agbanyeghi ma ha adị nso ma ọ bụ na ha adịghị.
+Ụfọdụ ga-eme mmemme nlafo chi nwunye nna ha na di nne ha, ọbụnadị na ha adịghị n' udo mgbe ha nọ ndụ.
+Ihe ha nwedebere ikwu bụ na ndị mụrụ ha nwụrụ ka ha pere mpe ma ọ bụ nwanne nne/nna nwoke a ma ọbụ nwaanyị a, dị nne a, nwunye nna a na nwanne nwoke a batara wee zụọ ha.
+Onye ka I bụ gị na onye mmadụ ya nwụrụ anwụ ịrụ ụka?
+E kwuwe ekwuwe, mmụba ọnụ akwamozu n' ụlọ pụtara na n' agbanyeghi onye nwụrụnụ, ozugbo ọkpụkpọ òkù elekere atọ nke ụtụtụ batara, ịna ego ga-esochi ya.
+Inwe onye nọ obodo oyibo pụtara ịgbalị maka akwamozu bụ eji ama atụ n' obodo oyibo.
+Nlafo chi dị ebe niile nke ndị mmadụ na-emezi ya ka ọ dị mfe site n' ikwu ihe dị ka nlafo chi Peter ma ọbụ nlafo chi Angela, kama inye aha kwesiri ya dị ka nlafo chi nna Peter ma ọ bụ nne Angela.
+Ọ na-ebelatara onye ọbụla isi ọwụwa ịchọpụta ihe jikọrọ onye na onye.
+Ọ bụrụ na i so n' òtù ndị na-eje nlafo chi, a tụrụ anya n' aka gị na, na nso nso ma ọ bụ e mechaa, na ị ga-enwe nlafo chi nke gị.
+Otu onye nwere ihe isi ike ịrụsị ụlọ ya n' ime obodo bọlitere nlafo chi nke ya site ọnwụ nne nne ya.
+Na nso nso a, e wepula ibu n' obi ịna ụlọ maka akwamozu.
+A na-anabatazị na onye ahụ nke nakọrọ ego niile a na nlafo chi ejeghi ụlọ ma ọlị maka ya bụ akwamozu.
+Na ọ zigara ego ahụ n' ụlọ ka ha si eche juru afọ.
+Nlafo chi ndị Naịjirịa-Amerịka nwụrụ na Amerịka bụ ihe dịrị onwe ya iche.
+Ụfọdụ enwe ya ka nlafo chi ka dị nkwesi.
+Ndị enyi na ndị mkpakọrịta na-emekarị ebere ma ghọta mkpa ọ dị ịtụkọ ego kwado ezinaụlọ nakwa oge ụfọdụ, ibuna ahụ onye ahụ Naịjirịa.
+N' ezie na nso a e nwere mbawanye na ntamu banyere ndị Naịjirịa-Amerịka inweta inshọọransị maka ndụ ga-ahụ maka ibunata ahụ ụlọ, ha ọ masikarịa ha, ma hapụrụ ndị ha hapụrụ ihe.
+<STOP>
 Walter na-abịa nlafo chi ọbụla. Ọ a-añụ mmanya ka ọchịchọ obi ya sịrị dị, gbagide egwu ganye n' ukwu afụwa ya ụfụ. N' otu oge ọ jụrụ maka ịbanye 'People's Club' ka o kirisiri ihe ngosi ụfọdụ n' ime ndi òtù a na nlafo chi ụfọdụ, mana ọ lara azụ ka a gwasịrị ya ego ole ọ na-eri iji wee sonye. 
 Otu ụbọchị, nne Walter nwụrụ. Walter wee nwe nlafo chi nke ya.
 Ọ kpọrọ ndị enyi ndị Naịjirịa ndị gwara ya ka e si akwado nlafo chi. O nweghi ndị enyi ha na ya dị na mma ga-abụ Kọmitii ndị enyi ọ wee bụrụ Kọmitii otu nwoke nke onwe ya. Ọ mere mgbagharị niile ma weta ego niile a chọrọ maka mmanya, nnukwu ụlọ, DJ, onye ose foto na nri. N' ụbọchị nlafo chi, ndị Naịjirịa bịara n' ìgwè. Ha riri, ñụọ, gbaa egwu, ma laa ụlọ.
