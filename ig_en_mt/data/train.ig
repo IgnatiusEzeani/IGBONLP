@@ -7271,29 +7271,38 @@ Nlafo chi ndị Naịjirịa-Amerịka nwụrụ na Amerịka bụ ihe dịrị 
 Ụfọdụ enwe ya ka nlafo chi ka dị nkwesi.
 Ndị enyi na ndị mkpakọrịta na-emekarị ebere ma ghọta mkpa ọ dị ịtụkọ ego kwado ezinaụlọ nakwa oge ụfọdụ, ibuna ahụ onye ahụ Naịjirịa.
 N' ezie na nso a e nwere mbawanye na ntamu banyere ndị Naịjirịa-Amerịka inweta inshọọransị maka ndụ ga-ahụ maka ibunata ahụ ụlọ, ha ọ masikarịa ha, ma hapụrụ ndị ha hapụrụ ihe.
-<STOP>
-Walter na-abịa nlafo chi ọbụla. Ọ a-añụ mmanya ka ọchịchọ obi ya sịrị dị, gbagide egwu ganye n' ukwu afụwa ya ụfụ. N' otu oge ọ jụrụ maka ịbanye 'People's Club' ka o kirisiri ihe ngosi ụfọdụ n' ime ndi òtù a na nlafo chi ụfọdụ, mana ọ lara azụ ka a gwasịrị ya ego ole ọ na-eri iji wee sonye. 
-Otu ụbọchị, nne Walter nwụrụ. Walter wee nwe nlafo chi nke ya.
-Ọ kpọrọ ndị enyi ndị Naịjirịa ndị gwara ya ka e si akwado nlafo chi. O nweghi ndị enyi ha na ya dị na mma ga-abụ Kọmitii ndị enyi ọ wee bụrụ Kọmitii otu nwoke nke onwe ya. Ọ mere mgbagharị niile ma weta ego niile a chọrọ maka mmanya, nnukwu ụlọ, DJ, onye ose foto na nri. N' ụbọchị nlafo chi, ndị Naịjirịa bịara n' ìgwè. Ha riri, ñụọ, gbaa egwu, ma laa ụlọ.
-N' ụtụ ka Walter mesiri nlafo chi, o jere n' ụlọ ọrụ otu eyi m onye nyere ya $50. Ego a na-enyekarị na nlafo chi bụ $100. Walter kelere enyi m nwoke nke ọfụma nke enyi m nwoke hụrụ ya ka ihe ezighi ezi. Ihe ọkpụkpọ òkù ekwe nti kaara ime, Walter bịara n' onwe ya.
-Ka Walter pụrụ, enyi m bịara ka ọ mara ihe mere Walter ji nwe nnukwu afọ ojuju. Ọ ga-abụ makana onye amaghị ya ọfụma nyere ya $50?
+Walter na-abịa nlafo chi ọbụla.
+Ọ a-añụ mmanya ka ọchịchọ obi ya sịrị dị, gbagide egwu ganye n' ukwu afụwa ya ụfụ.
+N' otu oge ọ jụrụ maka ịbanye 'People's Club' ka o kirisiri ihe ngosi ụfọdụ n' ime ndi òtù a na nlafo chi ụfọdụ, mana ọ lara azụ ka a gwasịrị ya ego ole ọ na-eri iji wee sonye. 
+Otu ụbọchị, nne Walter nwụrụ.
+Walter wee nwe nlafo chi nke ya.
+Ọ kpọrọ ndị enyi ndị Naịjirịa ndị gwara ya ka e si akwado nlafo chi.
+O nweghi ndị enyi ha na ya dị na mma ga-abụ Kọmitii ndị enyi ọ wee bụrụ Kọmitii otu nwoke nke onwe ya.
+Ọ mere mgbagharị niile ma weta ego niile a chọrọ maka mmanya, nnukwu ụlọ, DJ, onye ose foto na nri.
+N' ụbọchị nlafo chi, ndị Naịjirịa bịara n' ìgwè.
+Ha riri, ñụọ, gbaa egwu, ma laa ụlọ.
+N' ụtụ ka Walter mesiri nlafo chi, o jere n' ụlọ ọrụ otu eyi m onye nyere ya $50.
+Ego a na-enyekarị na nlafo chi bụ $100.
+Walter kelere enyi m nwoke nke ọfụma nke enyi m nwoke hụrụ ya ka ihe ezighi ezi.
+Ihe ọkpụkpọ òkù ekwenti kaara ime, Walter bịara n' onwe ya.
+Ka Walter pụrụ, enyi m bịara ka ọ mara ihe mere Walter ji nwe nnukwu afọ ojuju.
+Ọ ga-abụ makana onye amaghị ya ọfụma nyere ya $50?
 Ihe enyi m chọpụtara bụ na ndị Naịjirịa niile ahụ bịaranụ, riri, ñụọ, ma laa, onweghi onye nyere Walter ego ọbụla makana onweghi onye ọ nyere ego ma ncha na nlafo chi ahụ ọ jere afọ niile gara aga.
-........
-Rudolf Ogoo Okonkwọ bụ odee nke 'This American Life Sef. ' Akwụkwọ ọhụrụ ikpeazụ ya bụ 'The Secret Letter of President Donald Trump age 72 1/6. ' E bu ụzọ biputa akwụkwọ a na 'Catalyst International Magazine.'
+Rudolf Ogoo Okonkwọ bụ odee nke 'This American Life Sef.
+'Akwụkwọ ọhụrụ ikpeazụ ya bụ 'The Secret Letter of President Donald Trump age 72 1/6.
+E bu ụzọ biputa akwụkwọ a na 'Catalyst International Magazine.
 Anyị anọgidela n' aka idi ọcha anyị mgbe niile, onyeisi NFF, Pinnick, kwuru
-N' imeri n' ụlọ ikpe na nso a, Pinnick, kwuru, 'Nke a abụghị mmeri nke onwe nyere m na ndị òtù bọọdụ ndị ọzọ. Ọ bụ mmeri nyere òtù egwuregwu bọọlụ Naijiria.'
+N' imeri n' ụlọ ikpe na nso a, Pinnick, kwuru, 'Nke a abụghị mmeri nke onwe nyere m na ndị òtù bọọdụ ndị ọzọ.
+Ọ bụ mmeri nyere òtù egwuregwu bọọlụ Naijiria.'
 Onyeisi òtù egwuregwu bọọlụ Naijiria, Amaju Pinnick, ekwuola na ndị òtù ọrụ ya anọgidela aka idi ọcha ha n' òtù a.
 Pinnick kwuputara na Mọndee ka ọ bịara dị ka onye ọbịa na 'Channels Television's Sunrise Daily.'
 Onyeisi NFF a kwuru na ndị òtù ọrụ ya ekpughela ihe niile ka onye ọbụla hụ.
 Okwu ya bịara ka ụbọchị ole na ole gasịrị 'Federal High Court' dị n' Abuja hapụrụ ikpe ya ma kwuo na aka ya dị ọcha banyere ebubo igwu wayo ruru nde $8.4 na ijeri N4.
 Pinnick na ndị nchịkwa NFF ndị ọzọ ka e boro ebubo 16 nke mpụ na iri ego ndị a kpọrọ aha site ego enyemaka FIFA 2014, nakwa maka esomokwu mmasị na ekwuputaghị akụ bụ 'Special Presidential Investigation Panel' kwụsịrịla ọrụ nke onye ya bụ Okon Obono-Obla.
-O kwuru na Gọv. 
-Willie Obiano nwere mmasị n' ọrụ ụgbọ, ọkasị ịzụpụta anụ ụlọ, na-akpọzị ndị ọrụ ugbo ka ha nwere ohere e mebere na steeti a mere ihe. 
+O kwuru na Gọv. Willie Obiano nwere mmasị n' ọrụ ụgbọ, ọkasị ịzụpụta anụ ụlọ, na-akpọzị ndị ọrụ ugbo ka ha nwere ohere e mebere na steeti a mere ihe. 
 Onye ọrụ a gbara ndị ọrụ ugbo ume ka ha kpaa ministri ọrụ ugbo nso ka ha wee rite uru dị n' ihe mkpali gọvanọ wepụtara maka ịkwalite ịzụpụta anụ ụlọ.
 Maazị Okeke nyere ntụziaka ka e nwere ike isi rụ ubi ezi ma kwekwa nkwa ịmepụta akwụkwọ ntụziaka maka inwe ubi ezi anaghị esi isi.
 Ọ dụrụ ndị na-azụ ezi ọdụ ka ha ga n' ime obodo mee ka ndị ọrụ ugbo ndị sonyere ha n' inweta akarangwa gọọmenti iji zụlite ubi ha.
-(MOI)
-OON/ISO/TON.
 Onye mgbasa ozi a ma ama Emmanuel Ugolee ede elaborate akwụkwọ mbụ ya.
 Onye mgbasa ozi na onye ejije olu Emmanuel Ugolee agbakwunyela nnukwu nzọ ukwu ọzọ na ngụkọ ihe nweta ya dị ka ọ bụrụ odee akwụkwọ site iweputa akwụkwọ ya ọ kpọrọ 'A Hundred Random Light Bulbs. ' 
 A mụrụ ya na Jọs, Plateau State, Emmanuel Ugolee onye si Abịa State bidoro ịgbasa ozi na 1999 na 'Minaj Broadcast Television' dị ka onye na-anọ n' isi emume mkparịta ụka.
@@ -7318,26 +7327,17 @@ Gụkwuazị: 'Abịa Warriors' ji obere ohere merie wee nweta ọmarịcha mbid
 Onye bidoro ma bụrụkwa onye mgbazi 'circus' Martin Burton gwara 'MailOnline': 'Jackie bụ Ome ihe nkiri mara ihe ọ na-eme nke anyị hụrụ n'anya nke ọma dị ka onye ezinaụlọ 'circus' anyị.
 Odoro anya na ọ gbasara anyị, anyị na-enye ya na ezinaụlọ ya nkwado anyị n' ozuzu oké ma na-emere ya ebere n' oge a.
 Ka ọ dị ugbua anyị agaghị ekwuru okwu gaa n' ihu dị ka anyị enweghi ọmụma banyere ụdị mmeru ahụ ọ nwere ike inweta
-. '
 Ndị ọkachamara chọrọ ka ndị nwere echiche nnyocha chịwa, gbanwee Naijiria.
 Ndị eji okwu ha agba izu gbakọrọ na Mahadum Nnamdi Azikiwe (NAU) Awka, Anambra Steeti yọrọ nkwado inwe ndị nwere echiche nnyocha n' ọkwa ọchịchị buru n' uche ịgbanwe Naijiria.
-Ha kwuru nke a n' emume 'Ninth World Philosophy Day' nke 'United Nations Educational, Social and Cultural Organisation (UNESCO) na ngalaba Philosophy nke ngalaba 'Arts, ' nke isiokwu ya bụ 'Critical Thinking, Leadership and Social Transformation.
-'
-Onye bụ onyeisi ngalaba nke 'Arts, ' Rev.
-Fr.
-Ọkammụta Obi Ọgụejiofor kwuru na ọ na-adọta ndị ndu nye ndị ha na-achị ma ha nwere echiche nnyocha, echiche miri emi, nkwurịta okwu, ekelere uche, obi ghe oghe na mmụọ ndozi na-edu ma na-agbanwe nzukọ ma ọ bụ ewumewu nke mmadụ na akụnụba.
- Ọ kwara arịrị na nsogbu na-esogbu mmepe Naijiria na Afrịka si n' enweghi ndị ndu ndị nwere ike iche echiche miri emi n' otu oge ma ọ bụ nke ọzọ, were ọdịda Naijiria na-atụnyere enweghị ike iche echiche miri emi n' iti mkpu ka e bugharịa ike ọchịchị, nke o kwuru, na ọ naghị eweta onye kasị mma nwere inye ikpe nkwụmọtọ.
+Ha kwuru nke a n' emume 'Ninth World Philosophy Day' nke 'United Nations Educational, Social and Cultural Organisation (UNESCO) na ngalaba Philosophy nke ngalaba 'Arts, ' nke isiokwu ya bụ 'Critical Thinking, Leadership and Social Transformation'.
+Onye bụbu onyeisi ngalaba nke Arts, Rev. Fr. Ọkammụta Obi Ọgụejiofor kwuru na ọ na-adọta ndị ndu nye ndị ha na-achị ma ha nwere echiche nnyocha, echiche miri emi, nkwurịta okwu, ekelere uche, obi ghe oghe na mmụọ ndozi na-edu ma na-agbanwe nzukọ ma ọ bụ ewumewu nke mmadụ na akụnụba.
+Ọ kwara arịrị na nsogbu na-esogbu mmepe Naijiria na Afrịka si n' enweghi ndị ndu ndị nwere ike iche echiche miri emi n' otu oge ma ọ bụ nke ọzọ, were ọdịda Naijiria na-atụnyere enweghị ike iche echiche miri emi n' iti mkpu ka e bugharịa ike ọchịchị, nke o kwuru, na ọ naghị eweta onye kasị mma nwere inye ikpe nkwụmọtọ.
 Ọzọkwa, onyeisi oche na mbụ, Ngalaba nke Bekee na Okwu, Steeti Mahadum A na T, Mgbago ugwu California, 'United States of America' Ọkammụta Chimalu Nwankwọ kwara arịrị na ndị Afrịka anaghị eche echiche miri emi nke butere na ha enweghi ike iche echiche n' onwe ha, kama dabere n' ihe ndị ọbịa kwuru.
-Onye ọzọ ọ metụtara, Ọkammụta A.
-U.
-Igwe jụrụ ma ndị Naịjirịa ha na-etinye echiche miri emi n' ihe niile ha na-eme dị ka ọ katọrọ ndị ọchịchị ndị họrọ ịma sọ onwe ha kama ibu ndị na-eche echiche miri emi ma ha nwere ọnọdụ ọchịchị.
+Onye ọzọ ọ metụtara, Ọkammụta A. U. Igwe jụrụ ma ndị Naịjirịa ha na-etinye echiche miri emi n' ihe niile ha na-eme dị ka ọ katọrọ ndị ọchịchị ndị họrọ ịma sọ onwe ha kama ibu ndị na-eche echiche miri emi ma ha nwere ọnọdụ ọchịchị.
 Igwe, onye bụ Ọkammụta nke Akụkọ ihe mere eme, na NAU, kwuru na e nwere ole na ole ndị ndu Afrịka ndị echiche miri emi duru, ọkasị onyeisi ala Burkina Faso na mbụ, Thomas Sankara onye ọ kọwara dị ka ezigbo onye ndu nke webatara echiche miri emi na itinye ikike n' ezi ọrụ mgbe ọ chịrị. 
 Ọ kwuru na UNESCO mara ọrụ dị oké mkpa nkà ọmụma (philosophy) na-arụ n' ọchịchị; ya mere ha ji kwupụta na Nọvemba 21 kwa afọ ọbụla Ụbọchị nkà Ọmụma Ụwa niile, na-ekwusi ike na echiche miri emi na-akpali tell ndị ndu ime ka ihe dịrị ndị nke ha mma.
-N' akụkụ nke ya, Dr.
-Emmanuel Umezinwa nke Ngalaba Egwu ma bụrụkwa onye mbụ ji nzere Masta nke ngalaba nkà Ọmụma, kwuru na usoro iche echiche ndị ọcha emela n' amaghị ama ka ndị Afrịka mụọ ọgụgụ isi ha ma tinye nnukwu echiche n' iche echiche, na-gbakwunye na e nwere nnukwu nghọtahie ihe bụ echiche.
-. '
-Gọọmenti
-Kwesiri inye iwu machiri mmemme okpukperechi n' ama egwuregwu--- onye nwe Rojenny.
+N' akụkụ nke ya, Dr. Emmanuel Umezinwa nke Ngalaba Egwu ma bụrụkwa onye mbụ ji nzere Masta nke ngalaba nkà Ọmụma, kwuru na usoro iche echiche ndị ọcha emela n' amaghị ama ka ndị Afrịka mụọ ọgụgụ isi ha ma tinye nnukwu echiche n' iche echiche, na-gbakwunye na e nwere nnukwu nghọtahie ihe bụ echiche.
+Gọọmenti kwesiri inye iwu machiri mmemme okpukperechi n' ama egwuregwu - onye nwe Rojenny.
 Rommy Ezeọnwụka, onye nwe ama egwuregwu Rojenny na 'Tourist village, ' akpọkuola gọọmenti n' ogo dị iche iche ka ha machie okpukperechi na mmemme ndị ọzọ n' abụghị egwuregwu n' ama egwuregwu ọ bụla dị n' ala anyị.
 Ezeọnwụka kpọrọ òkù a mgbe ọ nabatara ndị òtù 'Sports Writers Association of Nigeria (SWAN), ngalaba Anambra, ndị na-eme njem nleta maka ngwa egwuregwu na steeti ahụ.
 Njem nleta egwuregwu a bụ so n' otu ihe mejupụtara ụbọchị nke atọ na mmemme otu izu ụka SWAN na steeti ahụ.
@@ -7383,23 +7383,19 @@ Jerry, bụ onye dịkarịsịrị nta so ná asọmpi a nke afọ ọpekata mp
 'M ga-ahụ ọtụtụ ihe banyere Baịbụl m na-agụ maka ya ma ghọta akụkụ ya ụfọdụ n' ụdị anya fụrụ, ya bụ ekelere m Chukwu, Jerry kwuru.
 Maazị Oyare Ayegba, onye gbara onye nke abụọ, kelekwuazịrị Chukwu maka idowe ya n' ọnọdu osote onye nke mbụ na Ajụaza Baịbụl nke Ala a zọrọ nke ọma.
 Ayegba, onye nọchitere anya Akwa Ibom Steeti kwuru, 'Ekelere m Chukwu maka ihe O merele m ịbụ onye nke abụọ na asọmpi ala anyị n' ịsọ mpi baịbụl. 
-'Ịbụ osote onye nke mbụ bụ ihe dị mma, ana m ekele Chukwu, azọrọ m n' afọ gara aga mana esoghi m na ndị ruru n' isi, esoghi na mmadụ atọ bụ ụzọ. 
-'
+'Ịbụ osote onye nke mbụ bụ ihe dị mma, ana m ekele Chukwu, azọrọ m n' afọ gara aga mana esoghi m na ndị ruru n' isi, esoghi na mmadụ atọ bụ ụzọ.
 N' ajụjụ ọzọ, Maazị Akonde Josiah, onye gbara onye nke atọ, na-anọchiteanya Borno, kwuru na obi isi ike nke onye mụrụ ya na ndị enyi tinyere n' ime ya bụ mkpalite mmụọ ya n' asọmpi ahụ.
 Dị ka o si kwuo, ekelere m Chukwu ma kelee onye ọbụla kwenyere na m karịa mụ onwe m, nke dị ọke mkpa.
 'Ọ bụghị n' ezie maka ọmụma kama amara Chukwu.
 Kamgbe March mgbe anyị bidoro ọ bụrịị amara.
 'Afọ gara aga anọ m ebe a ma ma soro ná mmadụ 12 ruru agba ikpeazụ ma mụ na ndị meriri ka na-enwe ezi mmekọrịta,' Josiah kwuru.
-'News Agency of Nigeria (NAN )' kọrọ na a kwụrụ ndị mmeri a ụgwọ ọrụ site n' inye ha ohere ịbụ ndị ọbịa nwere ùgwù na Asọmpi Baịbụl Mba Ụwa na Disemba
-24, na Jeruselem, Israel.
+'News Agency of Nigeria (NAN )' kọrọ na a kwụrụ ndị mmeri a ụgwọ ọrụ site n' inye ha ohere ịbụ ndị ọbịa nwere ùgwù na Asọmpi Baịbụl Mba Ụwa na Disemba 24, na Jeruselem, Israel.
 Odoziakụ Nkechinyere-Mbah, 39, bụ onye Abịa, bụ onye mmeri nke Asọmpi Agba Ochie nke Ala anyị Izizi, nke 1,800 so sọ mpi na 2018.
 Ọmụma ikpe Kalụ: Isonyere pati na-achị abụghị nkwa megide ikpe nkwụmọtọ banyere mpụ--- Nwagwụ.
 Orji Kalụ
-Maazị Ezenwa Nwagwụ, onyeisi, 'Partners for Electoral Reforms (PEF )' kwuru na ịtụ mkpọrọ nke onye ji ọkwa gọvanọ na mbụ Gov.
-Orji Kalụ nke Abịa bụ ihe àmà na ibu ikpe mpụ sonyere pati na-achị achị abụghị nkwa megide ikpe nkwụmọtọ.
+Maazị Ezenwa Nwagwụ, onyeisi, 'Partners for Electoral Reforms (PEF )' kwuru na ịtụ mkpọrọ nke onye ji ọkwa gọvanọ na mbụ Gov. Orji Kalụ nke Abịa bụ ihe àmà na ibu ikpe mpụ sonyere pati na-achị achị abụghị nkwa megide ikpe nkwụmọtọ.
 Nwagwụ n' ajụjụ ọnụ ndị News Agency of Nigeria (NAN ) gbara n' ụbọchị Tọzdee n' Abuja kwuru na ịtụ mkpọrọ a egosila na ọ bụghị eziokwu bụ echiche na ozugbo ndị mmadụ ndekọ mpụ banyere pati na-achị achị ha nwere onwe ha. 
-NAN kọrọ na Kalụ nọ na Tọzdee bụrụ onye a mara ikpe mpụ ma tụọ nga afọ 12 site n' aka Federal High Court na Legosi ka a masịrị ya ikpe ijeri N7.
-. 2 igwu wayo na ibu ego
+NAN kọrọ na Kalụ nọ na Tọzdee bụrụ onye a mara ikpe mpụ ma tụọ nga afọ 12 site n' aka Federal High Court na Legosi ka a masịrị ya ikpe ijeri N7.2 igwu wayo na ibu ego
 Ikpe a bụ agbam ume nyere ibu agha megide mpụ, ọkasị megide mgbakwasa ụkwụ nke mkpọtụ niile banyere na ozugbo mmadụ nọ n' 'All Progressives Congress' (APC) n' onye ahụ anara ikpe mkwụmọtọ.
 Gụkwuazị: Ọmụma ikpe Orji Kalụ gosiri na Magu anaghị atụrụ onye ọbụla egwu----- Òtù ibu agha megide mpụ. 
 'Ọ bụ ezigbo mgba àmà na ọbụnadị na ị banyere pati na-achị ị gaghị emechu ikpe nkwụmọtọ.
@@ -7411,23 +7407,21 @@ Dị ka World Health Organisation (WHO) si kwuo, a mara 'lassa fever' ka ihe jup
 Ọnụ Ọgụgụ ikpeazụ nke si 'Nigeria Centre for Disease Control (NCDC)', kwuru na e nwetara mmetụta ọrịa iri ọhụrụ na steeti ise: ise n' Ondo, abụọ n' Edo, otu n' ime Ebonyi, Bauchi na Abịa.
 Na mmetụta ọhụrụ ndị a, otu mmadụ nwụrụ n' Edo na Abịa steeti.
 Nwoke, 26, ka mmiri riri n' ama egwuregwu nke ala anyị (National Stadium ). 
-Otu Sodiq Yusuf, 26, nke ọnụ ọgụgụ
-26, Horgan Bassey Striit, Surulere, ka e kwuru na ọ mmiri riri n' ámá egwuregwu nke ala anyị, Surulere.
+Otu Sodiq Yusuf, 26, nke No 26, Horgan Bassey Striit, Surulere, ka e kwuru na ọ mmiri riri n' ámá egwuregwu nke ala anyị, Surulere.
 Ndị uwe ojii na Legosi n' ụbọchị Ụka kwuru na otu nwoke dị afọ 26, Sodiq Yusuf, anwụọla n' ime mmiri ebe igwu mmiri nke ámá egwuregwu ala anyị dị na Surulere. 
 Onye mmekọrịta ọhaneze ndị uwe ojii Legosi, DSP Bala Elkana, kwuru n' okwu ya na e zigara òtù ndị uwe ojii ebe ihe mere ozugbo.
 Nwoke e jidere na-edina obere nwa nwaanyị n' ike (foto). 
 E jidere otu nwoke n' ụbọchị Wenzidee ka ọ na-edina obere nwa nwaanyị n' ike n' ime ọhịa n' Abịa steeti, na gburugburu ụzọ si 'Hightaste' banye Ibere Striit nke ụzọ Ngwa.
 Dị ka onye nwe ihu akwụkwọ, David Osinachi, onye tụsara foto si ebe ihe ahụ mere, si kwuo, onye a na-enyo enyo tụrụ nwata nwaanyị a banye n' ime ọhịa ma were aka ya kpuchie ya ọnụ iji gbochie ya iti mkpu enyemaka.
 Gụkwuazị: Onye e dinara n' ike nwụrụ ka e duturu n' ụzọ ụlọ ikpe ka a - aga ikpe ikpe 
-David dere: 'E jidere ya ka ọ na-enwe mmekọahụ/na-edina nwata nwaanyị nọ foto a n' ike ka ọ labatara ya n' ọhịa dị nso ebe aka ya kpuchiri ya ọnụ ka ọ ghara iti mkpu n' otu ebe si Ụzọ Hightaste
-banye Ibere Striit nke Ụzọ Ngwa n' Aba, Abịa Steeti taa'.
+David dere: 'E jidere ya ka ọ na-enwe mmekọahụ/na-edina nwata nwaanyị nọ foto a n' ike ka ọ labatara ya n' ọhịa dị nso ebe aka ya kpuchiri ya ọnụ ka ọ ghara iti mkpu n' otu ebe si Ụzọ Hightaste banye Ibere Striit nke Ụzọ Ngwa n' Aba, Abịa Steeti taa'.
 Ụlọ ọmebe iwu Nasarawa steeti ga-eme iwu ga-echekwaba ụmụnwaanyị na ụmụaka mmesike.
 Ụlọ ọmebe iwu Nasarawa steeti sị na ya ga-eme iwu ga-echekwaba ụmụnwaanyị na ụmụaka na mmesike maka mmepe nke steeti ahụ nakwa ala anyị.
 Alhaji Ibrahim Balarabe-Abdullahi, okwuchite ọnụ ụlọ ọmebe iwu, kwuru nke a ụbọchị Tuzdee mgbe ụmụnwaanyị steeti nke Komishọna steeti maka Ụmụnwaanyị, Hajiya Halima Jabiru, nọ n' isi ọgbakọ kampeenu megide mmesike ụmụnwaanyị n' ụlọ ọmebe iwu steeti.
 O kwuru na iwu a na-ewube ya ga-echekwaba, sọpụrụ ma kwalite ikike ụmụnwaanyị na ụmụaka iji kwalite ahụ ike ha na obibi ndụ ha
 Gụkwuazị: Ụlọ ọmebe iwu Abịa chọrọ imebe iwu machiri mmesike nye onye ọbụla.
-'Anyị ga-eweputa iwu ọbụla dabara adaba ga-akwụsị mmesike megide ụmụnwaanyị na ụmụaka na steeti a.
-'Anyị kwenyere na iwu a na ewepụta ya gakwa echekwaba ikike ụmụnwaanyị na ụmụaka maka mmepe zuru ezu nke steeti a,' o kwuru.
+Anyị ga-eweputa iwu ọbụla dabara adaba ga-akwụsị mmesike megide ụmụnwaanyị na ụmụaka na steeti a.
+Anyị kwenyere na iwu a na ewepụta ya gakwa echekwaba ikike ụmụnwaanyị na ụmụaka maka mmepe zuru ezu nke steeti a,' o kwuru.
 Abdullahi kpọkuru ndị Naịjirịa niile ka ha chekwaba ụmụnwaanyị na ụmụaka n' ụdị mmesike ọbụla maka mmepe pụtara ìhè na steeti ahụ nakwa ala anyị.
 'Onye Naijiria ọbụla kwesiri ịhụ na e chekwabara ụmụnwaanyị na ụmụaka nakwa na e tinyeghi ha mmesike ekwesighi ekwesi,' o kwuru.
 Na mbụ, Hajiya Halima Jabiru, Komishọna ihe gbasara Ụmụnwaanyị, kwuru na ha nọ n' ụlọ ọmebe iwu ịchọ nkwado ndị ọmebe iwu na nkwugide mmesike ụmụnwaanyị.
@@ -7455,15 +7449,12 @@ N' afọ 2018, Naijiria gbara ndị nke 187 n ' ime mba 191 n' ụwa niile na an
 Onyeisi nchịkwa ỌRỤ (Chief Executive Officer, CEO) LAPO, Godwin Ehigiamusoe, kwuru na ngalaba nleta ahụ ike ala anyị kwesiri ileba anya nke ìgwè mmadụ n' egbughi oge, ma gbakwunye na ọnụ ọgụgụ nleta ahụ ike n' ọtụtụ ebe na-agwụ ike.
 E kwuputala ọkpe ikpe Nnamdị Kanụ dị ka onye a chọrọ achọ.
 Ndị uwe ojii n' Anambra Steeti ekwuputala Ifeanyị Ejiofor, ọkpe ikpe nyere onye ndu nke Indigenous People of Biafra (IPOB) Nnamdị Kanụ dị ka onye a chọrọ achọ.
-'M ga-achọ ime ka ndị Naịjirịa mara na dị ka anyị na-ekwu ugbua, ọkpe ikpe Ejiofor, onye òtù IPOB na ndị òtù ya a burụla ndị ndị uwe ojii kwuputara dị ka ndị a chọrọ achọ' Kọmishọna uwe ojii na Anambra Steeti, John Abang, kwuru ụbọchị Tuzdee.
+M ga-achọ ime ka ndị Naịjirịa mara na dị ka anyị na-ekwu ugbua, ọkpe ikpe Ejiofor, onye òtù IPOB na ndị òtù ya a burụla ndị ndị uwe ojii kwuputara dị ka ndị a chọrọ achọ' Kọmishọna uwe ojii na Anambra Steeti, John Abang, kwuru ụbọchị Tuzdee.
 'Ma ana m arịọ mmekọrịta ndị Naịjirịa na-edobe iwu na mgbago ugwu, mgbada ugwu, ọwụwa anyanwụ na ọdịda anyanwụ, ebe ọbụla ha hụrụ onye a, ha gaa nye mkpesa n' ọdụ ndị uwe ojii dị nso ma ọ bụ ngalaba ọrụ nchekwa ọzọ maka njide na ikpe ya ikpe.
-'.
 Otu nwụrụ, abụọ meruru ahụ na nkụkọ n' ụzọ awara awara Legosi-Abeokuta. 
-'Ogun Traffic Compliance and Enforcement Corps (TRACE )', n' ụbọchị Ụka, kwuru na otu onye nwụrụ anwụ, ebe abụọ ndị ọzọ nwetara ihe mmeru ahụ n' ihe mberede okporo ụzọ nke mere na mpaghara Onihale, dị nso n' Owode-Ijako, n' ụzọ awara awara Legosi-Abeokuta.
-Odoziakụ Temitope Oseni, Ọchịagha TRACE nke Owode-Ijako, gwara 'News Agency of Nigeria (NAN ) n' Ọta, Ogun, na ihe mberede okporo ụzọ a mere n' ihe dịka 6.
-15 nke ụtụtụ.
-ụbọchị Ụka
-Ọ kọwara na gwomgworo (trọkụ ), n' enweghị akara ndebanye, sị Abeokuta na-eje Sango-Ota ekweghi njide makana taya ya gbawara agbawa.
+Ogun Traffic Compliance and Enforcement Corps (TRACE )', n' ụbọchị Ụka, kwuru na otu onye nwụrụ anwụ, ebe abụọ ndị ọzọ nwetara ihe mmeru ahụ n' ihe mberede okporo ụzọ nke mere na mpaghara Onihale, dị nso n' Owode-Ijako, n' ụzọ awara awara Legosi-Abeokuta.
+Odoziakụ Temitope Oseni, Ọchịagha TRACE nke Owode-Ijako, gwara 'News Agency of Nigeria (NAN ) n' Ọta, Ogun, na ihe mberede okporo ụzọ a mere n' ihe dịka 6:15 nke ụtụtụ ụbọchị Ụka
+Ọ kọwara na gwomgworo, n' enweghị akara ndebanye, sị Abeokuta na-eje Sango-Ota ekweghi njide makana taya ya gbawara agbawa.
 Oseni kwuru na ụgbọala ahụ tụgharịrị ugboro abụọ, nke kpatara ọnwụ nwata nwoke na-eso ụgbọala ahụ, ebe ọkwọ ụgbọala na otu onye ọzọ meruru ahụ.
 GỤKWUAZỊ: Ihe mberede okporo ụzọ ụgbọala: otu nwụrụ anwụ, iteghete meruru ahụ n' Anambra Steeti.
 Oseni kọwara na nwata nwoke na-eso ụgbọala a na-achọ ịmapụ n' ụgbọala ka ọ kụrụ isi n' ụzọ, nke kpatara ọnwụ ya.
@@ -7473,33 +7464,32 @@ Oseni kọwara na nwata nwoke na-eso ụgbọala a na-achọ ịmapụ n' ụgb�
 Ooni, Eze, Nwodo kwusara ozi udo n' oriri Eri nke ụwa niile. 
 Obi tọrọ Nwodo ụtọ dị ka ndị Afrika-Amerika lọtara ụlọ.
 Obi Ọnịcha, na ndị bịara mmemme.
-Ọ bụ nnọọ nzukọ nke ndị mmadụ si ebe dị iche iche----- ndị Igwe ala Igbo nakwa ndị ogbo ha si ala Yoruba na-agwa ndị Naịjirịa ka ha nabata ịdịkọnotu dị ka ụzọ a ga-esi nweta ibiko ọnụ n' udo n' etiti agbụrụ dị iche iche n' agbanyeghi ndabere okpukperechi.
+Ọ bụ nnọọ ezigbo njikọ aka sitere na akụkụ Naịja.
+ndị Igwe ala Igbo nakwa ndị ogbo ha si ala Yoruba na-agwa ndị Naịjirịa ka ha nabata ịdịkọnotu dị ka ụzọ a ga-esi nweta ibiko ọnụ n' udo n' etiti agbụrụ dị iche iche n' agbanyeghi ndabere okpukperechi.
 Na mmemme oriri Eri n' Agụleri, Anambra Steeti, n' okwu dị iche iche, HRM Eze Chukwuemeka Eri, Eze alaeze Eri n' Enugwu Agụleri na HRM, Oba Adeyeye Enitan Ogunwusi, Ooni Ife, ndị eze ọdịnala si oche ikike gboo, gosiri ụzọ agamniihu ma rugosi ịdịnotu all ala anyị dịka ihe ga-akasị eweta udo, mmepe na agamniihu nke ala anyị na akụkụ ọbụla.
 Ọ bụ ihe agbamume na a hụrụ ụdị mmemme n' oriri Eri nke ụwa niile n' Enugwu Agụleri dị n' Anambra Steeti, ebe Eze Eri kpọrọ Ooni Ife, Obi Ọnịcha, HRM Igwe Nnaemeka Achebe, onyeisi Ọhanaeze ndị Igbo gburugburu, Ichie Nnia Nwodo, na ndị ọzọ nọ n' ọkwa .
 Ndị ọzọ n' ọkwa na mmemme bụ Igwe Mbaukwu HRM Peter Anugwu, HRM Igwe Patrick Okolo nke Nsukka obodo mepere emepe, Dr Chile Obidigbo, onyeisioche okpuru ọchịchị Anambra East Hon Obi Nweke, onyeisioche okpuru ọchịchị Ogbaru Hon Arinze Awogu, onye nnọchiteanya Anambra East n' ụlọ ọmebe iwu Anambra Steeti Hon Obinna Emenaka nakwa ndị ọzọ.
 Onye kpọrọ oriri, Eze Chukwuemeka Eri, Ezeọra nke 34 na Aka ji Ọvọ Igbo, kọwara oriri ahụ dị ka oge ndị Igbo n' ụwa niile ji agbakọ wee cheta nna ha Eri, onye e kwenyere na o si Israel malite njem ma kwụsị n' Agụleri.
-'Taa anyị na-emume ncheta ma na-eri oriri onye Afrịka na ụwa niile a ma ama n' akụkọ ihe mere eme Nna Anyị Eri.
+Taa anyị na-emume ncheta ma na-eri oriri onye Afrịka na ụwa niile a ma ama n' akụkọ ihe mere eme Nna Anyị Eri.
 Taa ana m asị nwanne m nwoke na enyi m nwoke si ala Yoruba, Ooni Ife, HRM Oba Adeyeye Enitan Ogunwusi, Ojaja 11, Ooni Ife nke 51.
 Eji m ohere a arịọ maka udo na ịdịnotu n' etiti ndị Yoruba na ndị Igbo na Ndị Naịjirịa ndị ọzọ,' o kwuru. 
 Pillars, Abịa Warriors ekpeziela esemokwu banyere Enaholo.
-'Nigeria Professional Football League (NPF)' Kano Pillars kwetara na ha edoziela nnukwu esemokwu ngafe ha na Abịa Warriors maka onye chere Flying Eagles goolu mbụ, Joshua Enaholo, Completesports.
-com reports 
+'Nigeria Professional Football League (NPF)' Kano Pillars kwetara na ha edoziela nnukwu esemokwu ngafe ha na Abịa Warriors maka onye chere Flying Eagles goolu mbụ, Joshua Enaholo,
+Completesports.com dere 
 Enaholo esonyerela ndị bugoro iko egwuregwu ugboro anọ, Pillars na ngafe oge okpomọkụ, mana Abịa Warriors na-ekwu na ngafe a megidere usoro iwu ngafe ma degaara ndị nhazi liigi akwụkwọ mkpesa ugboro abụọ, LMC.
 Òtù egwuregwu a wee kwukwa na ha anaghị ekwugide ọchịchọ obi Ọgba bọọlụ ahụ ịpụ ma ha na-kwusi ike na n'agbanyeghi n' ọ ka nwere oge agbam bọọlụ fọrọ na nkwekọrịta ha na ya, a ga-eso ụzọ kwesiri ekwesi.
 Mana onyeisi ọchịchị bọọdụ Kano Pillars, Surajo Shuaibu Yahaya, egosila ugbua na ha ejirila nwayọọ kpezie esemokwu ngafe a, buru ụkpa otiti bunye onyeisiọche Abịa Warriors, Pastor Emeka Inyama, maka nghọta, mmekọ ihe ọnụ, na ntozu okè ya n' ihu na eji nwayọọ kpezie esemokwu a.
 Ndị uwe ojii gbaturu ekperima a na-enyo enyo n' Abịa.
-Uweojii. 
-'Ndị uwe ojii nke Abịa n' ụbọchị Tuzdee gbaturu onye ekperima a ma ama a na-enyo enyo ohi a kpọrọ Sampson Nwokocha, aka 'Grave' onye butere ihe ụjọ nyere ndị bi n' Ụmụahia na obodo ndị gbara gburugburu.'
+Ndị Uweojii.
+Ndị uwe ojii nke Abịa n' ụbọchị Tuzdee gbaturu onye ekperima a ma ama a na-enyo enyo ohi a kpọrọ Sampson Nwokocha, aka 'Grave' onye butere ihe ụjọ nyere ndị bi n' Ụmụahia na obodo ndị gbara gburugburu.'
 Kọmishọna ndị uwe ojii na steeti ahụ, Maazị Ene Okon, onye mere ka ndị nta akụkọ mara nke a n' Ụmụahia, kwuru na a gbagburu ya ka ya na ndị otu ya kwakọrịtachara mgbọ.
 O kwuru na Nwokocha, onye e si na nga kpọpụta na nso a so ndị ndị uwe ojii na-enyo enyo n' ihi ọtụtụ ebubo ohi e boro ya.
-O kwuru 'A ga-echeta na Nọvemba
-6 na 10, 2019, Nwokocha na ndị otu ya wakporo họteelu ma zuo ndị ọrụ na ndị ọbịa ohi.
-'Ka a na-eme ihe a e gburu otu onye uwe ojii ma buru egbe ya.
-'Ọzọkwa na Nọvemba 10, 2019, Nwokocha na ndị otu ya zuru ndị na-ere ahịa na ndị na-ego ahịa n' ebe a na-ere mmanụ ụgbọala ohi na' Bank Road', Ụmụahia. 
-Gụkwuazị: Ndị uwe ojii jidere nwaanyị maka inye nwa di ya nsị na Katsina. 
-'Ugboro ugboro, o duru òtù ji egbe napụ ụgbọala ndị nwe ha n' ime nakwa mpụta nke isi obodo ahụ.
-'O zukwara mpaghara ndị ọzọ ohi ma kpaa nkata iwakpo ụlọ nga dị n' Ụmụahia iji tọhapụ nne ya na ndị nga ndị ọzọ.
-. '
+O kwuru 'A ga-echeta na Nọvemba 6 na 10, 2019, Nwokocha na ndị otu ya wakporo họteelu ma zuo ndị ọrụ na ndị ọbịa ohi.
+Ka a na-eme ihe a e gburu otu onye uwe ojii ma buru egbe ya.
+Ọzọkwa na Nọvemba 10, 2019, Nwokocha na ndị otu ya zuru ndị na-ere ahịa na ndị na-ego ahịa n' ebe a na-ere mmanụ ụgbọala ohi na' Bank Road', Ụmụahia. 
+Gụkwuazị: Ndị uwe ojii jidere nwaanyị maka inye nwa di ya nsị na Katsina.
+Ugboro ugboro, o duru òtù ji egbe napụ ụgbọala ndị nwe ha n' ime nakwa mpụta nke isi obodo ahụ.
+O zukwara mpaghara ndị ọzọ ohi ma kpaa nkata iwakpo ụlọ nga dị n' Ụmụahia iji tọhapụ nne ya na ndị nga ndị ọzọ.
 Okon dọrọ ndị ekperima aka ná ntị ka ha wepu aka n' ajọ omume ha ma ọ bụ kwapụ dị ka ndị uwe ojii agaghị ahapụ ha.
 Ndị uwe ojii gburu ekperima a na-enyo enyo n' Abịa.
 Ndị uwe ojii nke Abịa n' ụbọchị Tuzdee gbaturu onye ekperima a ma ama a na-enyo enyo ohi a kpọrọ Sampson Nwokocha, aka 'Grave' onye butere ihe ụjọ nyere ndị bi n' Ụmụahia na obodo ndị gbara gburugburu.
@@ -7519,10 +7509,7 @@ E kwuru na ihe dịka mwakpo ndị uweojii wakporo ụlọ ọnụ na-ekpere Kan
 Ndị uweojii na ndị IPOB enyela akụkọ dị iche iche maka ihe merenụ nke ọkụ gbapịrị opekata mpe ụlọ na ọdụ ahịa iri abụọ.
 Ileba anya ihe dị oké mkpa n'ala anyị dị ka Madueke na-ewepụta akwụkwọ ọ dere banyere ndụ ya.
 Admiral Allison Madueke, n' agbaghaghị agbagha, akụkọ nke ọnwa iri atọ nke agha ndị abụghị ndị agha Naijiria nke 1967 ka bụ mgbe dị oke mkpa na mkparịta ụka oge ọ bụla a na-eleba anya n' akụkọ ihe mere eme iji kwalite ọdịmma n' ọdịnihu.
-Otu ọ dịkwa ibu agha maka nhazigharị na nhọpụta onyeisi ala nke Juun 12, 1993 nke e kwuru na onye meriri na ya oji ego achụ ego a ma ama, Ichie M.
-Ka.
-O Abiola mana a kagburu ya site n' aka onyeisi ndị agha nke Steeti, Ọchịagha
-Ibrahim Babangida 
+Otu ọ dịkwa ibu agha maka nhazigharị na nhọpụta onyeisi ala nke Juun 12, 1993 nke e kwuru na onye meriri na ya oji ego achụ ego a ma ama, Ichie M.K.O Abiola mana a kagburu ya site n' aka onyeisi ndị agha nke Steeti, Ọchịagha Ibrahim Babangida 
 Ihe ndị a ka na-apụta ihe ugboro ugboro mana enweghị ike ileghara ha anya makana ha na-emetụta ala anyi. 
 Iri afọ abụọ na otu ka mgbe Naijiria lọghachiri n' ọchịchị ndị nkịtị, ihe ndị ahụ butere agha ndị abụghị ndị agha, ibu agha maka nhazigharị akwụsị akwụsị nakwa ịhụta otu mpaghara ala anyị dịka ndị ji ọchịchị ka bụ akara pụtara ìhè na-esogbu ala anyị mana na-aga n' ihu n' akpagbu mmepe ha anya dịka 
 N' ezie, elebenyabeghi ụfọdụ nsogbu anya nke ọma e tinye ọtụtụ n' ime ha n' ọnọdụ kwesiri ekwesi n' ụdị nwere ike inye aka n' ịhazigharị otito nakwa mmepe nke àlà anyị. 
@@ -7551,14 +7538,13 @@ Ka ọ sịrị kwụọ,ndi nta na Kiri Kiri ọrụ ụfọdụ dịka ndị n
 Onye okaikpe ọzọ, bụ Mazi Nnamdi Ibegbu, SAN, kwụrụ sị: ' Añụrị jụrụ m afọ na ụlọ ikpe mechara bata ebea bụ Awka.
 'Ka ọtụtụ afọ gara n'igba mbọ,E sonyerụ nke ụkwụ na ya bụ mmeghari.
 A nọchịtekwara m anya onyeisi n'ogbakọ ndi okaikpe akpọrọ Nigerian Bar Association(NBA) bụ Mazi Paul Ụsọrọ, SAN,ma gụkwa akwụkwọ nabata ya.
-Hon Justice c.
-E Nwosu-Iheme JCA abụrụla onye agụchịrị aha okaikpe nọ n'okwa , ụlọikpe nkpesa, nke ngalaba Awka.
+Hon Justice C. E Nwosu-Iheme JCA abụrụla onye agụchịrị aha okaikpe nọ n'okwa, ụlọikpe nkpesa, nke ngalaba Awka.
 Oria ahụike akpọrọ Lassa fever n'asụsụ bekee ka esi na nwe nmekorịta na mamiri, nsị maọbụ ọbara oke nwere ya bụ oria.
 NDI OTU ỌRỤ AKPỌRỌ NULGE DỊ NA ANAMBRA KELE GỌỌMENTỊ MAKA IJIKOTA NKEWA DI N'ỤGWỌ ỌRỤ HA NA LG, NDỊ ỌRỤ STEETI ỌZỌKWA sịte na Uzo Ugwunze
 A ga-ebutekwa ya site na nmetụta ihe ọbụla, ngwe eji ebi n'ụlọ nakwa n'elu maọbụ iri nri ọ nyụnyere mamiri, nsị, asọ mmiri maọbụ obara nke anụmanụ oke bu ya bụ oria.
 Onye kọmịshọna ,bịara, rịọ ndi ọrụ ahụike, ma nke onwe na nke mmadu ka ha na-akpachapụ anya n'ihi ọnọdụ a maka nchekwa ha na nchekwa nke ndị mụrụ ha na ndị nke ha hụrụ n'anya
 Biko ọ bụrụ na ndị ọrụ ahụike enwe nlegara anya maka ahụ oku oke ,nye nwoke maọbụ nwanyi ahụ ndụmọdụ ka ọ kpọkụọ ndi okpụrụ ọchịchị ha na eme nyocha ọria nakwa onye ọrụ ngosipụta (DSNO) maka inweta ọgwụwọ 
-Dr. okpala doro aka na ntị mkpa ọ dị ha I dị nkwadebe maka mgbasasi oria ahu oku na steeti a, na-enyochanu mgbasasi oria ahu oku a na- enwu enwu.
+Dr. Okpala doro aka na ntị mkpa ọ dị ha I dị nkwadebe maka mgbasasi oria ahu oku na steeti a, na-enyochanu mgbasasi oria ahu oku a na- enwu enwu.
 ụlọ ọrụ nke jikotara otu ndi enwere n'ọrụ na okpụrụ ọchịchị gọọmentị dị na Naịjịrịa nke ngalaba steeti Anambra bụ NULGE n'aha ichafụ, kenele gọọmentị steeti Anambra n'ijikota ikpaoke n'ugwo ọnwa na-etiti ndi ọrụ okpụrụ ọchịchị nakwa ndi ọrụ ọzọ na steeti a.
 Mazi chikwelu Adigwe, onyeisi ndi NULGE,nke ngalaba Anambra kwụrụ na mgbe njem nmata nke ịrị abụọ na otu ọ mere na Ojota, odida anyanwụ okpụrụ ọchịchị Idemili( LGA).
 Ọ kwụrụ na nkewa di n'etịtị okpụrụ ọchịchị na ndị ọrụ ọzọ,nke otu ahụ na-agbaghari maka ya, abụrụla ihe ejikotara ọnụ site n' ikwụ ugwo ọnwa nke jenuwari .
@@ -9368,22 +9354,68 @@ Ikpe ziri ezi abụghị ikpe mgbe ndị mmadụ, bụ ndị e kwupụtara na ha
 Fredrick Nwabufo bụ odeakwụkwọ na onye ntaakụkọ… @FredrickNwabufo
 Arsenal chụrụ Emery maka arụmọrụ adịghị mma
 N'oge ọ nọ na klọb ahụ, ọ lekọtara usoro dị egwu nke mere ka otu ya gaa egwuregwu asaa na-enweghị mmeri ọbụla na nke mbụ kemgbe 1992.
-A chụpụla Unai Emery, dịka onye njikwa nke Arsenal. N'oge ọ nọ na klọb ahụ, ọ gara egwuregwu asaa na-enwetaghị mmeri kemgbe 1992. Oge e were dịka onye nzọpụta nke otu ahụ, Emery, 48, bụ onye a họpụtara n'oge ọkọchị n'afọ 2018 tinyere ọpụpụ Arsene Wenger. O duziri ndị Gunners ka ha banye n'ọgba nke ise, otu isi na-esote Spurs, tupu Chelsea e jiri ọkpụ anọ a sara naanị otu (4-1) merie ha na Europa League ikpeazụ. Ndị otu ya gbara egwuregwu iri abụọ na abụọ were turu ugo na ha tinyere egwuregwu iri na otu e meriri ha. Ihe ikpeazụ bụ mmeri ndị Frankfurt meriri ha na European League na Tọọzụde. Ndị klọb ahụ rịọrọ Freddie Ljungberg ka ọ rụọ ọrụ n'otu egwuregwu mbụ dịka onye isi ha.
+A chụpụla Unai Emery, dịka onye njikwa nke Arsenal.
+N'oge ọ nọ na klọb ahụ, ọ gara egwuregwu asaa na-enwetaghị mmeri kemgbe 1992.
+Oge e were dịka onye nzọpụta nke otu ahụ, Emery, 48, bụ onye a họpụtara n'oge ọkọchị n'afọ 2018 tinyere ọpụpụ Arsene Wenger.
+O duziri ndị Gunners ka ha banye n'ọgba nke ise, otu isi na-esote Spurs, tupu Chelsea e jiri ọkpụ anọ a sara naanị otu (4-1) merie ha na Europa League ikpeazụ.
+Ndị otu ya gbara egwuregwu iri abụọ na abụọ were turu ugo na ha tinyere egwuregwu iri na otu e meriri ha.
+Ihe ikpeazụ bụ mmeri ndị Frankfurt meriri ha na European League na Tọọzụde.
+Ndị klọb ahụ rịọrọ Freddie Ljungberg ka ọ rụọ ọrụ n'otu egwuregwu mbụ dịka onye isi ha.
 ASUU kpọrọ oku maka ịkwụsị ọrụ dị ka ndị Varsites bidoro IPPIS Taa
 Njikọ ahụ kwuru na Gọọmentị etiti kwesịrị ịnwale iji hụ na ego ahụ doro anya kama ịmanye ndị otu ya ihu ha dị na Integrated Personnel Payroll na Ụlọọrụ na-ahụ maka mgbasa ozi 'Information System', nke mepere na Mọnde.
-Ndị ọchịchị na-ahụ maka ndị nkuzi mahadum a kpọrọ 'Academic Staff Union of Universities' agwala ndị otu ha nọ na mba niile ka ha leghara akwụkwọ sitere n'ụlọ ọrụ na-ahụ maka ego n'ala anyị anya iji debanye aha ndị ọrụ n'ime 'Integrated Payment and Personnel Information System' site n'ụbọchị Monday. N'ụbọchị Sunday, ndị otu ASUU kwuru na onyeisi ndị na-ahụ maka ego mara ndị otu ahụ aka ịmepụta ndebiri nke ga-anabata ndị ọrụ ma gosi ya. Ndị otu ahụ kwuru na gọọmentị etiti kwesịrị ịnwale n'ụdị nke ya kama ịmanye ndị otu ya na ndị a ga-etinye na 'Integrated Personnel Payroll and Information System', nke mepere na Mọnde, nkwupụta nke Punch mere. Prof Biodun Ogunyemi, onyeisi ndị ASUU, gbakwụnyere na idebanye aha ndị nkuzi dị ka iweghachi mahadum azụ dịka ọrụ ndị nkịtị. Ogunyemi siri ọnwụ na ndị otu ya agaghị etinye aka ná ndebanye aha maka IPPIS, na-agbakwụnye na usoro dị otu a ndị gọọmentị etiti chọrọ ime ga-emebi ọchịchị nke mahadum Naịjiria. O kwuru, 'Anyị gwara gọọmenti na anyị nwere nhọrọ ọzọ nke ga-edozi nsogbu niile gọọmenti welitere banyere mahadum'. 'Gọọmenti kwesịrị ịnwale ụdị nke anyị kama iweta ụdị ga-eweghachi mahadum azụ dịka ọrụ ndị nkịtị'. Site na IPPIS, tupu onyeisi mahadum ga-enwe onye ọrụ agụmakwụkwọ, onyeisi ahụ (VC) ga-enweta ikikere n'aka onyeisi ndị ọrụ n'ala anyị. 'E nweghị ike ime e mahadum n'ime usoro ọrụ gọọmenti'. Mahadum bụ ebe ihe ọmụma ma ha nwere ike ime nke ọma mgbe e nyere ha oghere ịrụ n'usoro dị n'iwu ha'. Anyị na gọọmentị debanyere akara ngosi ma ha kwere nkwa na ha ga-amalite nleta n'ọnwa Maachị afọ a. Gọọmenti emeghị ihe ọbụla. Nke a bụ ọnwa Nọvemba. Mgbe ndị mmadụ na-ekwu na ASUU na-akwado nrụrụ aka, ọ bụ mmebi aha. 'Anyị na IPPIS ga-emebi mahadum Naịjirịa ma ọ bụrụ na ndị a ga-aga n'ihu manye ndị mmadụ idebanye aha ha'. 'Ị gaghị enwe ike ịkpọta ndị nkuzi n'akụkụ ụwa niile gwa ha ka ha debanye aha n'Abuja n'ozi ahụ. Ọ bụ ihe ọchị. Anyị agafeela nke ahụ. Ha na-akpọghachi anyị azụ. Ọ bụ ihe mwute'. 
+Ndị ọchịchị na-ahụ maka ndị nkuzi mahadum a kpọrọ 'Academic Staff Union of Universities' agwala ndị otu ha nọ na mba niile ka ha leghara akwụkwọ sitere n'ụlọ ọrụ na-ahụ maka ego n'ala anyị anya iji debanye aha ndị ọrụ n'ime 'Integrated Payment and Personnel Information System' site n'ụbọchị Monday.
+N'ụbọchị Sunday, ndị otu ASUU kwuru na onyeisi ndị na-ahụ maka ego mara ndị otu ahụ aka ịmepụta ndebiri nke ga-anabata ndị ọrụ ma gosi ya.
+Ndị otu ahụ kwuru na gọọmentị etiti kwesịrị ịnwale n'ụdị nke ya kama ịmanye ndị otu ya na ndị a ga-etinye na 'Integrated Personnel Payroll and Information System', nke mepere na Mọnde, nkwupụta nke Punch mere.
+Prof Biodun Ogunyemi, onyeisi ndị ASUU, gbakwụnyere na idebanye aha ndị nkuzi dị ka iweghachi mahadum azụ dịka ọrụ ndị nkịtị.
+Ogunyemi siri ọnwụ na ndị otu ya agaghị etinye aka ná ndebanye aha maka IPPIS, na-agbakwụnye na usoro dị otu a ndị gọọmentị etiti chọrọ ime ga-emebi ọchịchị nke mahadum Naịjiria.
+O kwuru, 'Anyị gwara gọọmenti na anyị nwere nhọrọ ọzọ nke ga-edozi nsogbu niile gọọmenti welitere banyere mahadum'.
+Gọọmenti kwesịrị ịnwale ụdị nke anyị kama iweta ụdị ga-eweghachi mahadum azụ dịka ọrụ ndị nkịtị'.
+Site na IPPIS, tupu onyeisi mahadum ga-enwe onye ọrụ agụmakwụkwọ, onyeisi ahụ (VC) ga-enweta ikikere n'aka onyeisi ndị ọrụ n'ala anyị.
+E nweghị ike ime e mahadum n'ime usoro ọrụ gọọmenti'.
+Mahadum bụ ebe ihe ọmụma ma ha nwere ike ime nke ọma mgbe e nyere ha oghere ịrụ n'usoro dị n'iwu ha'.
+Anyị na gọọmentị debanyere akara ngosi ma ha kwere nkwa na ha ga-amalite nleta n'ọnwa Maachị afọ a.
+Gọọmenti emeghị ihe ọbụla.
+Nke a bụ ọnwa Nọvemba.
+Mgbe ndị mmadụ na-ekwu na ASUU na-akwado nrụrụ aka, ọ bụ mmebi aha.
+Anyị na IPPIS ga-emebi mahadum Naịjirịa ma ọ bụrụ na ndị a ga-aga n'ihu manye ndị mmadụ idebanye aha ha'.
+Ị gaghị enwe ike ịkpọta ndị nkuzi n'akụkụ ụwa niile gwa ha ka ha debanye aha n'Abuja n'ozi ahụ.
+Ọ bụ ihe ọchị.
+Anyị agafeela nke ahụ.
+Ha na-akpọghachi anyị azụ.
+Ọ bụ ihe mwute. 
 Ọghọm ndị ụlọakụ bụ uru ndị ụlọ ntụrụndụ 
-Ụlọ ọrụ na-ahụ maka mmemme na-apụta dịka ahịa nke ga-anara mgbazinye ego nke Central Bank of Nigeria (CBN) na-amanye ndị ụlọ akụ inye. Akụkọ sitere n'aka Proshare na-egosi na ụlọ akụ na-etinye onwe ha n'ọrụ na-adọta ndị ahịa site n'obere ụlọ ọrụ. N'agbanyeghị, ndị nnyocha Sahara Report agwala ma kọsaa akwụkwọ sitere n'ụlọ ọrụ nnyocha ego 'Financial Research Firm', kwubie na mmụba nke ụlọ akụ dị iche iche iji gbazinye ego, bụ ihe adịghị mma nye ụlọ ọrụ ego a n'oge a. Anyị kwenyere na nke a-ịgbazinye ego dị pacenti iri isii na ise bụ ihe adịghị mma maka ndị ụlọ akụ, nke nwetagoro nke ọma site na nsogbu nke jupụtara kemgbe afọ 2016, ndị nnyocha Cardinals Tone kwuru. 'Anyị kwenyekwara na gburugburu ebe obibi esighi ike ịkwalite ùtó n'igbazinye ihe', ọ gbakwụnyere. Adedayo Bakare, onye nnyocha na Afrinvest nyere ndị Sahara Report echiche yiri nke ha. N'ikwe n'ihe Bakare hụrụ, abụọ n'ime atọ ndị na-agba inye ego, Zenith na Guarantee Trust, so ná ndị mgbazinye ego iri na abụọ CBN dara nha karịrị #499bn maka enweghị ike izute ebumnuche maka ịgbazite ego dị pasenti iri isii nke Septemba 2019. Ndị mgbazinye nke atọ - ụlọ akụ Access, na-enye ego nke ha nwetara site n'ụlọ akụ Diamond. Proshare kwuru na ndị a na-agbazi ego lebara anya n'ụlọ ọrụ a ma ama, iji belata nsogbu ibinye ndị ọrụ ugbo ego. N'ime akwụkwọ e bipụtara ụbọchị Tọzdee, o depụtara usoro nkepụta ego ndị Deposit Money Banks na-arụ iji wee rụpụta akụ dị mma. Atụmatụ kachasị mma bụ nke ndị ụlọ akụ Access mere n'Ogun steeti. Proshare kwuru na obodo ahụ ga-enye aka kọwaa nsogbu a na-enwe n' ebe a na-emepụta ihe nkiri, ikike maka ndị na-eme ihe na ịbawanye gburugburu ụlọ ọrụ ndị 'Arts na Entertainment' na Naịjiria. Herbert Wigwe, onyeisi njikwa nke ụlọ akụ Access, na-atụ anya n'aka ndị obodo ịmepụta ọrụ dị nde abụọ maọbụ atọ kwa afọ. Òtù ihe nnweta akụ ha n'Ogun steeti na-egosi mmetụta a na-enwe n'ụlọ akụ ahụ. Otú n'ime ụdịrị ihe ndị a bụ mkpebi ụlọ akụ United Bank of Africa (UBA) mere Wizkid dịka onye nnọchite anya ya. Aghakwara okwu 'Stars na Suits' : Afropop zutere 'High Finance', ọgbakọ ahụ nyere ndị UBA ohere iwu mmekọrịta dị n'etiti ụlọ egwu na ụlọ ọrụ ego. Zenith, Eco na Gt bụ ụlọ akụ ndị ọzọ nwere ma na-ewu lite mmekọrịta ha na ndị ọkachamara n'ime ụlọ ọrụ ahụ. Ọnọdụ a bụ ihe ndị ụlọ akụ jiri sie ike. 
+Ụlọ ọrụ na-ahụ maka mmemme na-apụta dịka ahịa nke ga-anara mgbazinye ego nke Central Bank of Nigeria (CBN) na-amanye ndị ụlọ akụ inye.
+Akụkọ sitere n'aka Proshare na-egosi na ụlọ akụ na-etinye onwe ha n'ọrụ na-adọta ndị ahịa site n'obere ụlọ ọrụ. 
+N'agbanyeghị, ndị nnyocha Sahara Report agwala ma kọsaa akwụkwọ sitere n'ụlọ ọrụ nnyocha ego 'Financial Research Firm', kwubie na mmụba nke ụlọ akụ dị iche iche iji gbazinye ego, bụ ihe adịghị mma nye ụlọ ọrụ ego a n'oge a. 
+Anyị kwenyere na nke a-ịgbazinye ego dị pacenti iri isii na ise bụ ihe adịghị mma maka ndị ụlọ akụ, nke nwetagoro nke ọma site na nsogbu nke jupụtara kemgbe afọ 2016, ndị nnyocha Cardinals Tone kwuru.
+Anyị kwenyekwara na gburugburu ebe obibi esighi ike ịkwalite ùtó n'igbazinye ihe', ọ gbakwụnyere.
+Adedayo Bakare, onye nnyocha na Afrinvest nyere ndị Sahara Report echiche yiri nke ha.
+N'ikwe n'ihe Bakare hụrụ, abụọ n'ime atọ ndị na-agba inye ego, Zenith na Guarantee Trust, so ná ndị mgbazinye ego iri na abụọ CBN dara nha karịrị #499bn maka enweghị ike izute ebumnuche maka ịgbazite ego dị pasenti iri isii nke Septemba 2019.
+Ndị mgbazinye nke atọ - ụlọ akụ Access, na-enye ego nke ha nwetara site n'ụlọ akụ Diamond.
+Proshare kwuru na ndị a na-agbazi ego lebara anya n'ụlọ ọrụ a ma ama, iji belata nsogbu ibinye ndị ọrụ ugbo ego. 
+N'ime akwụkwọ e bipụtara ụbọchị Tọzdee, o depụtara usoro nkepụta ego ndị Deposit Money Banks na-arụ iji wee rụpụta akụ dị mma.
+Atụmatụ kachasị mma bụ nke ndị ụlọ akụ Access mere n'Ogun steeti.
+Proshare kwuru na obodo ahụ ga-enye aka kọwaa nsogbu a na-enwe n' ebe a na-emepụta ihe nkiri, ikike maka ndị na-eme ihe na ịbawanye gburugburu ụlọ ọrụ ndị 'Arts na Entertainment' na Naịjiria.
+Herbert Wigwe, onyeisi njikwa nke ụlọ akụ Access, na-atụ anya n'aka ndị obodo ịmepụta ọrụ dị nde abụọ maọbụ atọ kwa afọ.
+Òtù ihe nnweta akụ ha n'Ogun steeti na-egosi mmetụta a na-enwe n'ụlọ akụ ahụ.
+Otú n'ime ụdịrị ihe ndị a bụ mkpebi ụlọ akụ United Bank of Africa (UBA) mere Wizkid dịka onye nnọchite anya ya.
+Aghakwara okwu 'Stars na Suits' : Afropop zutere 'High Finance', ọgbakọ ahụ nyere ndị UBA ohere iwu mmekọrịta dị n'etiti ụlọ egwu na ụlọ ọrụ ego.
+Zenith, Eco na GTB bụ ụlọ akụ ndị ọzọ nwere ma na-ewu lite mmekọrịta ha na ndị ọkachamara n'ime ụlọ ọrụ ahụ.
 Banky W wakporo Gọọmentị Buhari maka ijide Sowore
-“Onye ga-anọchite anya gị? Mgbe ha bara n’ọfịs, ha ga-enweta ego ha kwụrụ. Nnukwu nsogbu ga-adịrị onye ọbụla. ”
+Onye ga-anọchite anya gị?
+Mgbe ha bara n’ọfịs, ha ga-enweta ego ha kwụrụ.
+Nnukwu nsogbu ga-adịrị onye ọbụla.
 Onye na-eti egwu, Bankole Wellington a maara nke ọma dịka Banky W, akọtọọla gọọmentị Naịjirịa maka nnukwute oke iwu ndị nke megidere ụmụ amaala.
 Ọ boro ndị Naijiria ebubo na ha na-eme na ihe zuuru ha n' ọnọdụ ọbụla mgbe ha kwesiri ime ihe.
 Banky W mere ka a mara nke a na vidiyo egwu o gosipụtara n' Ịnstagramụ nke ọ kpọrọ #BetterChallenge.
-Ọ sịrị, 'Unu hụrụ na akụkọ a na akụkọ ochie ahụ bụ otu ihe, unu chọrọ mgbanwe mana unu agaghị eme ntuliaka. Yabụ, mkpesa abaghị uru.
-“Onye ga-anọchite anya gị? Mgbe ha bara n’ọfịs, ha ga-enweta ego ha kwụrụ. Nnukwu nsogbu ga-adịrị onye ọbụla. ”
+Ọ sịrị, 'Unu hụrụ na akụkọ a na akụkọ ochie ahụ bụ otu ihe, unu chọrọ mgbanwe mana unu agaghị eme ntuliaka.
+Yabụ, mkpesa abaghị uru.
 Ihe nkiri ahụ/vidiyo gara n'ihu gosipụta vidiyo CCTV ebe ndị ọrụ nke Ngalaba Ọchịchị (DSS) dị na Legoosụ jidere Sowore n'Ọgọstụ (August) 3.
-Ọ gbakwụnyere, 'Ha jidere onye omeiwu na-eme ngagharị iwe ahụ. Onye bụ anụ ahụ, olee onye bụ dinta? Ọtụtụ ụbọchị bụ maka onye ohi, mana otu ụbọchị bụ maka onye nwe ihe.' Ha jidere onye omeiwu ahụ na-eme ngagharị iwe ahụ. Nke a bụ #Betterchallenge - biko, lelee ma kesaa ma ọ bụrụ na ọ na-adị gị mma. pic.twitter.com/IbJDChjHta- Banky Wellington (@ BankyW) Septemba 14, 2019 '
-Ha jidere onye omeiwu ahụ na-eme ngagharị iwe ahụ. Nke a bụ #Betterchallenge - biko, lelee ma kesaa ma ọ bụrụ na ọ na-adị gị mma. pic.twitter.com/IbJDChjHta- Banky Wellington (@ BankyW) Septemba 14, 2019 '
+Ọ gbakwụnyere, 'Ha jidere onye omeiwu na-eme ngagharị iwe ahụ.
+Onye bụ anụ ahụ, olee onye bụ dinta?
+Ọtụtụ ụbọchị bụ maka onye ohi, mana otu ụbọchị bụ maka onye nwe ihe.
+Ha jidere onye na-eme ngagharị iwe, ma na azọkwa onye Sinetọ ahụ enweghị ihere.
+Nke a bụ #Betterchallenge - biko, lelee ma kesaa ma ọ bụrụ na ọ na-adị gị mma - Banky Wellington (@ BankyW) Septemba 14, 2019
 BBNaija: Khafi na-eyi ndị Sun egwu (na-àmájà ha) ịgba ha akwụkwọ maka 'Mmebi Mbipụta'
 Na Tuesday, Sun kọrọ na Khafi, onye bụ PC ndị uweojii Obodo, bụ onye amachibidoro ikike isonye n'ihe ngosi ahụ.
 Ndị nlekọta Khafi Kareem, BBN amanyela ndị na-arụ maka akwụkwọ akụkọ Sun nke Briten egwu ịgba ha akwụkwọ, maka 'akụkọ na-asọ oyi na mmebi mbipụta' gbasara ya.
@@ -9391,28 +9423,58 @@ Nke a dị na nkwupụta e wepụtara site na ihu akwụkwọ (peeji) Instagram 
 Khafi, onye nọ ugbu n'ihe nkiri igwe onyonyo nke BBN, ghọọrọ onye ama ama n'ihi mmekọrịta dị n'etiti ya na onye ọzọ bikwa n'otu ụlọ bụ Gedoni.
 Na Tuesday, Sun kọrọ na Khafi, onye bụ PC ndị uweojii Obodo, bụ onye amachibidoro ikike isonye n'ihe ngosi ahụ.
 Agbanyeghị, n'ịza mkpesa ahụ, ndị nlekọta Khafi kwuru na ha na-atụle nhọrọ iwu megide 'tabloid' nke Britain beelụsọ na ọ na-arịọ mgbaghara n'ihu ọha na eze ma na-agbagha akụkọ ahụ ugbu a.
-Nkwupụta ahụ gụrụ: “Mbipụta maka ndị nlekọta nke Khafi nke si n'aka ndị Sun nke UK na Tuesday, August 13, 2019, a kpọrọ 'LOIN OF DUTY Met Police' 'Nwata nwaanyị na-etinye ihe nkiri' chere ọ̀chụ́chụ́ n'ihi' inwe mmekọrịta na BBN mgbe a gwara ya ka ọ ghara iso '.
-Nkọwasị nke SUN UK bụ nke e deghị nke ọma ma ghara itule ụkpụrụ ide akụkọ nke chọrọ ntule. N'oge adịghị anya, SUN UK zigaara Khafi ozi n'imeelụ ya nke gbásàrà na soshal midia iji kenye maọbụ gbaghaa nkwupụta dị na mbipụta ahụ. 
-N'akụkụ Khafi, akụkọ ahụ bụ nke a ma ụma kọọ ma hapụ ịkọ ebe nzaghachi sitere na 'ndị ọrụ oke iwe na-ewe' na 'akwụkwọ ndị ọzọ' na-ekwupụta mbipụta ahụ. Nke a sitere n'agwa na-eme ihere na ihe e ji mara ụmụnwaanyị dịka mkpebi mmekọahụ na nhọrọ ndụ ha.'
-Anyị na-ahụ akwụkwọ akụkọ mbipụta nke Sun UK ka ihe na-asọ oyi ma na-emebi ndụ onye ahịa anyị. Anyị na-achọ ka eweghachi akwụkwọ ahụ nke Sun bipụtara ya na ịrịọ mgbaghara n'ihu ọha nye onye ahịa anyị Khafilat Kareem n'ime awa iri anọ na asatọ na-abịa. 
-A na-atụlekwa nhọrọ iwu n'oge a: BBNaija bụ ihe ekwensu, onye alakụba na-ekwu, ma na-agba ndị ụka ume isonye na nkatọ a na-akatọ ihe ngosi. “A na-adọbanye anyị n'ụwa ịgba ọtọ, mmechuihu na inwe mmekọ aghara aghara. Ndị obibi nke BBNaija susuru ọnụ, na-enwe mmekọahụ n'ihu ọha. BBNaija bụ ihe na-emegide ọha, ọ bụ ihe nzuzu na nke rụrụ arụ. Ọ bụ ihe jupụtara na nnukwu ihe egwu nyere ezinaụlọ niile. BBNaija bụ ihe si n'aka ekwensu. Ọ bụ ihe anabataghị.
+Nkwupụta ahụ gụrụ: “Mbipụta maka ndị nlekọta nke Khafi nke si n'aka ndị Sun nke UK na Tuesday, August 13, 2019, a kpọrọ 'LOIN OF DUTY Met Police Nwata nwaanyị na-etinye ihe nkiri chere ọ̀chụ́chụ́ n'ihi' inwe mmekọrịta na BBN mgbe a gwara ya ka ọ ghara iso .
+Nkọwasị nke SUN UK bụ nke e deghị nke ọma ma ghara itule ụkpụrụ ide akụkọ nke chọrọ ntule.
+N'oge adịghị anya, SUN UK zigaara Khafi ozi n'imeelụ ya nke gbásàrà na soshal midia iji kenye maọbụ gbaghaa nkwupụta dị na mbipụta ahụ. 
+N'akụkụ Khafi, akụkọ ahụ bụ nke a ma ụma kọọ ma hapụ ịkọ ebe nzaghachi sitere na 'ndị ọrụ oke iwe na-ewe' na 'akwụkwọ ndị ọzọ' na-ekwupụta mbipụta ahụ.
+Nke a sitere n'agwa na-eme ihere na ihe e ji mara ụmụnwaanyị dịka mkpebi mmekọahụ na nhọrọ ndụ ha.'
+Anyị na-ahụ akwụkwọ akụkọ mbipụta nke Sun UK ka ihe na-asọ oyi ma na-emebi ndụ onye ahịa anyị.
+Anyị na-achọ ka eweghachi akwụkwọ ahụ nke Sun bipụtara ya na ịrịọ mgbaghara n'ihu ọha nye onye ahịa anyị Khafilat Kareem n'ime awa iri anọ na asatọ na-abịa. 
+A na-atụlekwa nhọrọ iwu n'oge a.
+BBNaija bụ ihe ekwensu, onye alakụba na-ekwu, ma na-agba ndị ụka ume isonye na nkatọ a na-akatọ ihe ngosi.
 Ndị otu Muslim Rights Concern (MURIC) agwala gọọmentị etiti ka etinye iwu machibido ihe ngosi Big Brother Naija.
 MURIC kwuru na ihe ngosi a na-akwalite omume rụrụ arụ n' obodo nke a na-akpọ 'ihe rụrụ arụ, ihe dị óké egwu na Bohemian'.
 Ọkammụta Ishaq Akintola, onye nlekọta nke MURIC kwukwara na a ga-ejide onye na-akwado ihe ngosi ahụ maka ịkwalite omume rụrụ arụ na mba ahụ.
-“A na-adọbanye anyị n'ụwa ịgba ọtọ, mmechuihu na inwe mmekọ aghara aghara. Ndị obibi nke BBNaija susuru ọnụ, na-enwe mmekọahụ n'ihu ọha. BBNaija bụ ihe na-emegide ọha, ọ bụ ihe nzuzu na nke rụrụ arụ. Ọ bụ ihe jupụtara na nnukwu ihe egwu nyere ezinaụlọ niile. BBNaija bụ ihe si n'aka ekwensu. Ọ bụ ihe anabataghị.
-“Olee ebe iwu na ụkpụrụ anyị dị? Inwe mmekọ nwoke na nwaanyị, o so na omenaala Afrika? Ebee ka ndị ọchịchị nọ? Ndị Minista na-ahụ maka Ozi na Omenaala, a na-ehi ụra? Ngalaba ọrụ na-ahụ maka nhazi obodo, a nọ ezumike? Onye ga-echebe ụmụ anyị n'ihe mbibi a na-asọ oyi? Onye mere Naịjirịa ihe a?
-“Ihe ngosi a na-adọkpụrụ ụmụ anyị baa n'ibi ndụ rụrụ arụ. Ọ na-anapụ ha nsọpụrụ. Ọ na-ehichapụ okwu ahụ bụ 'ihere' n'okwu ha. BBNaija kewapụrụ ndị ntorobịa anyị n'ebe ndị okenye nọ. Ugbu a, óghére ka dị n'etiti ndị na-eto eto na ndị agadi. Nsogbu nke ọha na eze agaghị ebelata.
-“Anyị ga-ahụrịrị ndị ji ego buru ibu, nnukwu ụgbọala, na nnukwu ụlọ achụ ụmụ anyị dịka ndị kpebiri ibibi ụlọ ọrụ, ịdị uchu, nakwa ibibi iguzosi ike n'ezi ihe, karịsịa n'etiti ndị ntorobịa. Ọ dịghị ihe na-emebi mba ngwa ngwa karịa ịhụ ihe onwunwe n'anya. Ụmụnwaanyị Jezebel nọ ya ugbu a. Ọ gwụla ma ndị ọchịchị e jiri ọsọ dịka àmụ̀mà, ugwu mmadụ na Naịjiria ga-ala!
-“Ka ọ bụ na anyị amataghị na onye obibi BB Naija ọbụla meriri ma nwetakwa nnukwu ego na ụgbọala, ihe karịrị nde ndị ntorobịa iri ise ka a na-eduhie? Kor'an 30:41 kwuru sị, 'Ihe ọjọọ apụtala ma n' ala ma n'óké osimiri n'ihi akaọrụ nke mmadụ…' Akwụkwọ Nsọ na Ndị Efesọs 4:19 na-akọwa ndị a mgbe ọ na-ekwu, 'Dịka ha tụfuru ọgụgụ isi niile, ha enyefeela onwe ha ime ihe anụ ahụ́ bụ ihe rụrụ arụ, ya bụ agụụ ime ihe rụrụ arụ na-aga n'ihu mgbe niile.”
+A na-adọbanye anyị n'ụwa ịgba ọtọ, mmechuihu na inwe mmekọ aghara aghara.
+Ndị obibi nke BBNaija susuru ọnụ, na-enwe mmekọahụ n'ihu ọha.
+BBNaija bụ ihe na-emegide ọha, ọ bụ ihe nzuzu na nke rụrụ arụ.
+Ọ bụ ihe jupụtara na nnukwu ihe egwu nyere ezinaụlọ niile.
+BBNaija bụ ihe si n'aka ekwensu.
+Ọ bụ ihe anabataghị.
+“Olee ebe iwu na ụkpụrụ anyị dị?
+Inwe mmekọ nwoke na nwaanyị, o so na omenaala Afrika?
+Ebee ka ndị ọchịchị nọ?
+Ndị Minista na-ahụ maka Ozi na Omenaala, a na-ehi ụra?
+Ngalaba ọrụ na-ahụ maka nhazi obodo, a nọ ezumike?
+Onye ga-echebe ụmụ anyị n'ihe mbibi a na-asọ oyi?
+Onye mere Naịjirịa ihe a?
+Ihe ngosi a na-adọkpụrụ ụmụ anyị baa n'ibi ndụ rụrụ arụ.
+Ọ na-anapụ ha nsọpụrụ.
+Ọ na-ehichapụ okwu ahụ bụ 'ihere' n'okwu ha.
+BBNaija kewapụrụ ndị ntorobịa anyị n'ebe ndị okenye nọ.
+Ugbu a, óghére ka dị n'etiti ndị na-eto eto na ndị agadi.
+Nsogbu nke ọha na eze agaghị ebelata.
+Anyị ga-ahụrịrị ndị ji ego buru ibu, nnukwu ụgbọala, na nnukwu ụlọ achụ ụmụ anyị dịka ndị kpebiri ibibi ụlọ ọrụ, ịdị uchu, nakwa ibibi iguzosi ike n'ezi ihe, karịsịa n'etiti ndị ntorobịa.
+Ọ dịghị ihe na-emebi mba ngwa ngwa karịa ịhụ ihe onwunwe n'anya.
+Ụmụnwaanyị Jezebel nọ ya ugbu a.
+Ọ gwụla ma ndị ọchịchị e jiri ọsọ dịka àmụ̀mà, ugwu mmadụ na Naịjiria ga-ala!
+Ka ọ bụ na anyị amataghị na onye obibi BBNaija ọbụla meriri ma nwetakwa nnukwu ego na ụgbọala, ihe karịrị nde ndị ntorobịa iri ise ka a na-eduhie?
+Kor'an 30:41 kwuru sị, 'Ihe ọjọọ apụtala ma n' ala ma n'óké osimiri n'ihi akaọrụ nke mmadụ'
+Akwụkwọ Nsọ na Ndị Efesọs 4:19 na-akọwa ndị a mgbe ọ na-ekwu, 'Dịka ha tụfuru ọgụgụ isi niile, ha enyefeela onwe ha ime ihe anụ ahụ́ bụ ihe rụrụ arụ, ya bụ agụụ ime ihe rụrụ arụ na-aga n'ihu mgbe niile.'
 MURIC na-akpọ maka ịdịnotu n'etiti ndị otu Ụka na ndị ụka Alakụba na mba ahụ iji jikọta aka ọnụ ma manye gọọmentị itinye mmachi n'ihe nkiri a.
-lee kwa
-Ntụrụndụ
-Ọ bụ ihe onyonyo akpọmaasị' - MURIC na-enye Falz mkpụrụ ụbọchị asaa ka ọ wepụ 'Nke a bụ Naịjirịa'
-Nkwupụta efu
-Otu afọ gara aga 
-Anyị nwere ike ịkwụsị BBNaija ma ọ bụrụ na ndị otu Ụka na ndị Alakụba zukọta ịlụso ihe ọjọọ ọgụ. Omume rụrụ arụ amaghị okpukpe ọbụla. Ihe rụrụ arụ a na-egosi n'igweonyonyo dịka BBNaija na-abanye ma n'ụlọ ndị Ụka na ndị Alakụba.
-“Ditto maka ndị ọdịbendị nke omenaala na ọdịnaala anyị. Ndị igwe anyị na-eleghara mmemme dịka nke a anya, bụ nke nwere ikike niile iji belata ùgwù omenaala anyị. Ha na-alụ ọgụ maka onye kwesịrị ịbụ onyeisi oche nke kansụl nke ndị isi ọdịnala. Ha chọrọ ịbụ eze ndị eze na ndị mgbagha nke onye okike kachasị elu. Onye bụrụ Naịjiria ọnụ a?
-Mmadụ nwere ike ghara ịkwanyere otu onye ùgwù n'ihi na ọ bụ naanị ya. Mana ọ gaghị adị otu a ma ha dị n'igwe. Kedụ ihe ị chere ga-eme ma ọ bụrụ na ndị igwe anyị si mpaghara ọwụwa anyanwụ, ọdịda anyanwụ na ugwu gaa n'Aso Rock ịchọ ka a kwụsị ihe nkiri a jọgburu onwe ya ozigbo?
+MURIC na-enye Falz mkpụrụ ụbọchị asaa ka ọ wepụ 'Nke a bụ Naịjirịa'
+Anyị nwere ike ịkwụsị BBNaija ma ọ bụrụ na ndị otu Ụka na ndị Alakụba zukọta ịlụso ihe ọjọọ ọgụ.
+Ụlọ bụ ụlọ.
+Omume rụrụ arụ amaghị okpukpe ọbụla.
+Ihe rụrụ arụ a na-egosi n'igweonyonyo dịka BBNaija na-abanye ma n'ụlọ ndị Ụka na ndị Alakụba.
+Out aka ahụ maka ndị ọdịbendị nke omenaala na ọdịnaala anyị.
+Ndị igwe anyị na-eleghara mmemme dịka nke a anya, bụ nke nwere ikike niile iji belata ùgwù omenaala anyị.
+Ha na-alụ ọgụ maka onye kwesịrị ịbụ onyeisi oche nke kansụl nke ndị isi ọdịnala.
+Ha chọrọ ịbụ eze ndị eze na ndị mgbagha nke onye okike kachasị elu.
+Onye bụrụ Naịjiria ọnụ a?
+Mmadụ nwere ike ghara ịkwanyere otu onye ùgwù n'ihi na ọ bụ naanị ya.
+Mana ọ gaghị adị otu a ma ha dị n'igwe.
+Kedụ ihe ị chere ga-eme ma ọ bụrụ na ndị igwe anyị si mpaghara ọwụwa anyanwụ, ọdịda anyanwụ na ugwu gaa n'Aso Rock ịchọ ka a kwụsị ihe nkiri a jọgburu onwe ya ozigbo?
 MURIC boro ndị Minista Ozi na Omenala ebubo ime ngwangwa megide BB Naija tupu omume rụrụ arụ a a bụrụ ihe e ji mara ndị Naịjirịa.
 Big Brother Naija: Nwaanyị Britain a mụrụ na Naịjiria, Khafi Kareem, na-eche ọchụchụ n'ihi mmekọ a kpọrọ 'Sex Romp' ya na onye ọzọ na-azọkwa ọkwa mere. 
 E ji onye uweojii ahụ dịka nwata nwaanyị na-etinyere ndị Met ihe nkiri, nke guzo n'akụkụ kọmịshọna ndị Met Cressida Dick iji gbaa ndị isi ojii na ndị nwanyị ume ma mee emume afọ otu narị ụmụnwaanyị n'ọchịchị.
@@ -9422,20 +9484,29 @@ Mana e nyere ya ikike ezumike akwụghị ụgwọ o wee baa n'ihe ngosi ahụ, 
 Ndi na-ege ntị na Nigeria abanyela na njikọta nke ha, nke e nwere mmadụ atọ, mana ọ ga-abụzi isiokwu nke nyocha nke ndị Ọrụ Met a kpọrọ 'Directorate of Professional Standards' n'olu bekee.
 Ndị ọrụ ibe ya ekwupụtala iwe ha maka iji aghụghọ ya mee ihe ga-emebi aha ya.
 E ji onye uweojii ahụ dịka nwata nwaanyị na-etinyere ndị Met ihe nkiri, nke guzo n'akụkụ kọmịshọna ndị Met Cressida Dick iji gbaa ndị isi ojii na ndị nwanyị ume ma mee emume afọ otu narị ụmụnwaanyị n'ọchịchị.
-Otu onye ọrụ ibe ya gwara Sun: 'Ọ bụ onye uwe ojii Britain ka na-eje ozi- ọ jọgburu onwe ya. Ọ rịọrọ ikike ka ọ gaa ihe nkiri mana, mgbe a jụrụ ịnabata arịrịọ ya, ọ pụrụ. Ozi ịntanetị na-egosi ọpụpụ gosiri na ọ nọghị n’ọrụ, ma ọ dịghị onye mere ihe ọbụla. ”
+Otu onye ọrụ ibe ya gwara Sun: 'Ọ bụ onye uwe ojii Britain ka na-eje ozi- ọ jọgburu onwe ya.
+Ọ rịọrọ ikike ka ọ gaa ihe nkiri mana, mgbe a jụrụ ịnabata arịrịọ ya, ọ pụrụ.
+Ozi ịntanetị na-egosi ọpụpụ gosiri na ọ nọghị n’ọrụ, ma ọ dịghị onye mere ihe ọbụla.
 Ndị ọrụ ọzọ ha na ya na-arụkọ na-enwe nnwute na ọ gaghị ada iwu ma gaa n'Afrịka inwe aṅụrị ebe ọ gara kpụọ ndị ọchịchị uweojii afọ n'ala
 Nwaada Kareem bidoro dịka PC n'ọdụ Lambeth na 2015 mgbe afọ anọ gachara dịka onye ọrụ nchekwa pụrụ iche.
 Onye uwe ojii ahụ, onye kwuru okwu banyere nkwụsị na ịchọ ihe, sonyeere mgbe a sụgburu enyi ya dị afọ iri na isii, UK Daily Mail na-akọ.
-PC ahụ rụrụ ọrụ dịka onye na-ahụ anya n'ọdụ ụgbọelu, na-achọ ndị nwere ihe nbute mmekpa ahụ nwaanyị a kpọrọ 'Female Genital Mutilation' (FGM). Ọ rụkwara dịka onye ntụgharị okwu dịka ọ na-asụ asụsụ French, Italian na asụsụ ala nna ya bụ Yoruba. Agbanyeghị, e wepụrụ ya site n'otu FGM mgbe ya na ndị ọrụ ibe ya rụchara ụka.
+PC ahụ rụrụ ọrụ dịka onye na-ahụ anya n'ọdụ ụgbọelu, na-achọ ndị nwere ihe nbute mmekpa ahụ nwaanyị a kpọrọ 'Female Genital Mutilation' (FGM).
+Ọ rụkwara dịka onye ntụgharị okwu dịka ọ na-asụ asụsụ French, Italian na asụsụ ala nna ya bụ Yoruba.
+Agbanyeghị, e wepụrụ ya site n'otu FGM mgbe ya na ndị ọrụ ibe ya rụchara ụka.
 Ngwa ihe ngosi maka mmemme ahụ gosipụtara Nwaada Kareem n'uwe ya, ma gosipụta ya dịka ọ̀gụ́ egwu na ọ̀gbá egwu.
 Akwụkwọ ahụ kwuru banyere Nwaada Kareem: 'Onye uwe ojii Khafi Kareem kwenyere na ị ga-enweta ihe niile ma ọ bụrụ na ikwere n'onwe gị.
 Ọ bụghị naanị na ọ na-ele anya inweta ego mmeri ahụ mana ọ chọrọ ikpughe ịnọ na Big Brother Naija na-eweta ka o wee mee nke ọma.
 Ịhụnanya ya na Mr. Gedoni nọ na-adọrọ mmasị ndị na-ekiri ihe nkiri ahụ, nke malitere na June 30.
- Isi ụlọọrụ mgbasa ozi ikuku nke ala Naịjiria gosipụtara di na nwunye a na-egosi ịbụ ndị na-eme nnọkọ n'okpuru àkwà.
-Otu edemede kwuru: 'Ugbu a, egwu dị na Khafi nwere ike ibu afọ ime hapụ ụlọ Big Brother Naija dịka ya na Gedoni na-aga n'ihi enwe mmekọ nwoke na nwaanyị. Igwefoto ahụ jidere ha nke ugboro atọ n'abali ka ndị ọzọ na-ehi ụra. Gedoni na Khafi buuru ụzọ banye n'ụlọ na Satọde, Julaị 20 na n'ụbọchị Tuesday, Julaị 23
-Ntinye aka ya emeela ka ndị ọrụ ibe ya dị nnwute. Ozi ọzọ si na Met gwara ndị Sun: 'A gaghị enwe ike ịlọghachite azụ ọbụla na nke a na ndị isi ya ga-eme ihe.'
-Ọ dabara n'ụkpụrụ ahụ nke ọma dịka otu ọchịchị ọgbara ọhụụ chọrọ igosipụta onwe ya. 'O siri ike ịhụ ka ọ ga-esi rụọ ụka na o wetaghị onwe ya mmechu ihu n' ele ndị uweojii nọ. Onye na-ekwuchitere ndị Met ọnụ kwuru n'abalị ụnyaahụ a: Ndị Met akwadoghi ọdịdị onye uweojii ahụ nke o ji anọchite anya Met mgbe ọ na-apụta n'ihe ngosi ahụ.
-Ndị uwe ojii niile kwesịrị inwe agwa ndị ọkachamara na anaghị emechu ndị uweojii ihu n'ihu maọbụ n'azụ ọrụ. Ndị anaghị akpa agwa ndị ọkachamara na-emebi ụkpụrụ ndị uweojii nke e nwere ike imeso site n'usoro omume ọjọọ. ' 
+Isi ụlọọrụ mgbasa ozi ikuku nke ala Naịjiria gosipụtara di na nwunye a na-egosi ịbụ ndị na-eme nnọkọ n'okpuru àkwà.
+Otu edemede kwuru: 'Ugbu a, egwu dị na Khafi nwere ike ibu afọ ime hapụ ụlọ Big Brother Naija dịka ya na Gedoni na-aga n'ihi enwe mmekọ nwoke na nwaanyị.
+Igwefoto ahụ jidere ha nke ugboro atọ n'abali ka ndị ọzọ na-ehi ụra.
+Gedoni na Khafi buuru ụzọ banye n'ụlọ na Satọde, Julaị 20 na n'ụbọchị Tuesday, Julaị 23
+Ntinye aka ya emeela ka ndị ọrụ ibe ya dị nnwute.
+Ozi ọzọ si na Met gwara ndị Sun: 'A gaghị enwe ike ịlọghachite azụ ọbụla na nke a na ndị isi ya ga-eme ihe.'
+Ọ dabara n'ụkpụrụ ahụ nke ọma dịka otu ọchịchị ọgbara ọhụụ chọrọ igosipụta onwe ya.
+O siri ike ịhụ ka ọ ga-esi rụọ ụka na o wetaghị onwe ya mmechu ihu n' ele ndị uweojii nọ. Onye na-ekwuchitere ndị Met ọnụ kwuru n'abalị ụnyaahụ a: Ndị Met akwadoghi ọdịdị onye uweojii ahụ nke o ji anọchite anya Met mgbe ọ na-apụta n'ihe ngosi ahụ.
+Ndị uwe ojii niile kwesịrị inwe agwa ndị ọkachamara na anaghị emechu ndị uweojii ihu n'ihu maọbụ n'azụ ọrụ.
+Ndị anaghị akpa agwa ndị ọkachamara na-emebi ụkpụrụ ndị uweojii nke e nwere ike imeso site n'usoro omume ọjọọ. ' 
 Big Brother Naija: Inwe mmekọrịta dị n'ihe nkiri ahụ, ọgbakọ ụmụnwaanyị kwuru 
 Big Brother Naịja ọhụrụ a na-apụta, nke anyị na-esi na Startimes na-arụ ọrụ. Anyị na-eme BBN nke ga-egosipụta ezi omenaala ndị Naijiria.
 Otu na-ahụ maka ụmụnwaanyị a kpọrọ National Council of Women Societies (NCWS) na gọọmentị Naijiria katọrọ ihe mmekọ nwoke na nwaanyị dị na Big Nwan Naija (BBN), ihe ngosi tiivii, na-ekwupụta na ọ bụghị omenaala ndị Naijiria.
