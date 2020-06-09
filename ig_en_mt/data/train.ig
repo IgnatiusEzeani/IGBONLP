@@ -9513,45 +9513,80 @@ Otu na-ahụ maka ụmụnwaanyị a kpọrọ National Council of Women Societi
 Segun Runsewe, onye mgbazi na kansụl omenaala a kpọrọ National Council for Arts and Culture (NCAC), kwuru nke a mgbe ọ na-anabata Gloria Shoda, onyeisi oche nke National Council of Women Societies (NCWS).
 Onyeisi NCAC kpughere na gọọmentị na ndị Startimes nwere mkparịta ụka maka ibido BBN nke steeti nwe nke ga-egosipụta ihe ndị Naijirịa nwere.
 Ọ dọkwara aka na ntị na ụlọ ọrụ ahụ ga-eweta akwụkwọ ịgba ụgwọ iji nye mmebi iwu mmekọahụ dịka e gosiri na BBN.
-Ọ sịrị: “Anyị ga-eweghachi akwụkwọ ụgwọ ahụ. Ị gaghị ike ịlụ ọgụ na enweghị usoro iwu; anyị ga-ama nke a.
-“M ga-ebulite okwu nke Big Nwanna Naija. Agwala m ndị isi nke ụlọ ọrụ Mgbasa Ozi Mba n'ihi na ihe na-eme ugbu a dị egwu. Inwe mmekọ nwoke na nwaanyị n' igweonyonyo abụghị omenaala anyị ma ọlị.
-Ka m jiri nnọkọ a gwa ndị Big Brother Naịja ọhụrụ na-abịa, anyị na ndị Startimes na-emekọ. Anyị na-eme BBN nke ga-egosipụta ezi omenaala ndị Naijiria. Anyị na-arụ ọrụ na ya, ihe niile a ga-eri ebe ahụ ga-abụ nri ndị Naịjirịa, akwa a ga-eyi ga-abụ akwa ndị Naịjirịa.
+Ọ sịrị: “Anyị ga-eweghachi akwụkwọ ụgwọ ahụ.
+Ị gaghị ike ịlụ ọgụ na enweghị usoro iwu; anyị ga-ama nke a.
+“M ga-ebulite okwu nke Big Nwanna Naija.
+Agwala m ndị isi nke ụlọ ọrụ Mgbasa Ozi Mba n'ihi na ihe na-eme ugbu a dị egwu.
+Inwe mmekọ nwoke na nwaanyị n' igweonyonyo abụghị omenaala anyị ma ọlị.
+Ka m jiri nnọkọ a gwa ndị Big Brother Naịja ọhụrụ na-abịa, anyị na ndị Startimes na-emekọ.
+Anyị na-eme BBN nke ga-egosipụta ezi omenaala ndị Naijiria.
+Anyị na-arụ ọrụ na ya, ihe niile a ga-eri ebe ahụ ga-abụ nri ndị Naịjirịa, akwa a ga-eyi ga-abụ akwa ndị Naịjirịa.
 Onyeisi NCWS kwuru na ya emegideghị ihe ngosi BBN mana nke gbasara mmekọahụ na-asọ oyi.
-Shoda kwurusị, 'Inwe mmekọ nwoke na nwaanyị n'ọgbọ bụ ihe na-emetụta echiche m, ọ na-emetụta ụmụaka na-eto eto n'ụzọ adịghị mma. Ọ pụtara na ha agaghị enwe ike ịhapụ ịkwa iko ọnwa atọ? Ana m akatọ ịkwa iko dị na BBN. ​​”
+Shoda kwurusị, 'Inwe mmekọ nwoke na nwaanyị n'ọgbọ bụ ihe na-emetụta echiche m, ọ na-emetụta ụmụaka na-eto eto n'ụzọ adịghị mma.
+Ọ pụtara na ha agaghị enwe ike ịhapụ ịkwa iko ọnwa atọ?
+Ana m akatọ ịkwa iko dị na BBN.
 Big Brother Naija Star, Khaffy, nọ n'ihu ndị uweojii UK maka isonye na ngosi ahụ na enweghị ikike
-'Ọ bụ onye uwe ojii Britain ka na-eje ozi- ọ jọgburu onwe ya. Ọ rịọrọ ikike ka ọ gaa ihe nkiri mana, mgbe a jụrụ ịnabata arịrịọ ya, ọ pụrụ.
+Ọ bụ onye uwe ojii Britain ka na-eje ozi- ọ jọgburu onwe ya.
+Ọ rịọrọ ikike ka ọ gaa ihe nkiri mana, mgbe a jụrụ ịnabata arịrịọ ya, ọ pụrụ.
 Onye uweojii Metropolitan bụ Khafi Kareem na-apụta na Big Brother nke Naịjirịa n'agbanyeghị na ndị isi ya enyeghi ya ikike.
 Nwaada Kareem dị afọ iri abụọ na itoolu, onye e sere ya na kọmịshọna Cressida Dick foto ka ndị Met na-eme ncheta ụmụnwaanyị nke afọ otu narị n'ọnwa Nọvemba gara aga, bụ otu onye a ma ama nke ihe nkiri Africa tiivii gosipụtara.
 Scotland Yard kwuru na enyebeghị Nwaada Kareem ikike n'arịrịọ iji pụta na mmemme ahụ nakwa na a ga-eme nyocha nke ime ụlọ, ka UK Press Association na-akọ.
-Onye uweojii nke UK Metropolitan kwuru na e nyere Nwaada Kareem ezumike agaghị akwụ ụgwọ maka tupu ọ pụta n'ihe nkiri ahụ mana a jụrụ ịnabata arịrịọ ya maka itinye aka na mmemme ahụ. Onye nkwuchite ọnụ kwuru, sị: “Pc Met rịọrọ ikike isonye na ihe ngosi egwuregwu telivishọn na Nigeria mana e nyeghị ya ikike ahụ. 'Ndị ụlọọrụ Met ahụ maara na onye uweojii ahụ pụtara n'ihe nkiri ahụ n'enweghị ikike.
-“A gwala ndị 'Directorate nke Professional Standards' na a ga-eme nchọpụta banyere ọnọdụ ahụ.
+Onye uweojii nke UK Metropolitan kwuru na e nyere Nwaada Kareem ezumike agaghị akwụ ụgwọ maka tupu ọ pụta n'ihe nkiri ahụ mana a jụrụ ịnabata arịrịọ ya maka itinye aka na mmemme ahụ.
+Onye nkwuchite ọnụ kwuru, sị: Pc Met rịọrọ ikike isonye na ihe ngosi egwuregwu telivishọn na Nigeria.
+Enyeghị ya ikike ahụ.
+Ndị ụlọọrụ Met ahụ maara na onye uweojii ahụ pụtara n'ihe nkiri ahụ n'enweghị ikike.
+A gwala ndị 'Directorate nke Professional Standards' na a ga-eme nchọpụta banyere ọnọdụ ahụ.
 Met akwadoghi ejiji onye uweojii ahụ nke nwaanyị ahụ ji anọchite anya Met n'ihe ngosi ahụ.
 Ndị agha ahụ gbakwụnyere na onye uweojii ọbụla a hụrụ na-emebi ụkpụrụ ndị uweojii n'akparamàgwà ọkachamara nwere ike ịnwe ikpe na-adịghị mma.
 Dịka ndị Sun kwuru, Nwaada Kareem sonyere ndị agha ahụ dịka onye PC n'ọdụ Lambeth na 2015, ma rụọ ọrụ nwa oge ihe dịka afọ anọ.
-Otu onye ọrụ ya akpọghị aha ya gwara ndị akwụkwọ akụkọ: 'Ọ bụ onye uwe ojii Britain ka na-eje ozi- ọ jọgburu onwe ya. Ọ rịọrọ ikike ka ọ gaa ihe nkiri mana, mgbe a jụrụ ịnabata arịrịọ ya, ọ pụrụ.'
+Otu onye ọrụ ya akpọghị aha ya gwara ndị akwụkwọ akụkọ: 'Ọ bụ onye uwe ojii Britain ka na-eje ozi- ọ jọgburu onwe ya.
+Ọ rịọrọ ikike ka ọ gaa ihe nkiri mana, mgbe a jụrụ ịnabata arịrịọ ya, ọ pụrụ.'
 Ihe ngosi dị na webụsaịtị Africa Magic, nke telivishọn na-agbasa Big Brother Naija, kwuru na Nwaada Kareem sonyere n'ihe ngosi a 'ka o were mee ọhaneze mma'.
 Ọ na-agụ: 'Onye uweojii Khafi Kareem kwenyere na ị ga-enweta ihe niile ma ọ bụrụ na ikwere n'onwe gị.
 Ọ bụghị naanị na ọ na-ele anya inweta ego mmeri ahụ mana ọ chọrọ ikpughe ịnọ na Big Brother Naija na-eweta ka o wee mee nke ọma.
-“Ihe ndị mmadụ amaghị banyere ya bụ na o nwere ikike ikwu okwu, ịgụ egwu na ịgba egwu. Ọ bụ nwa afọ Ekiti onye bi na Lọndọn. ”
+Ihe ndị mmadụ amaghị banyere ya bụ na o nwere ikike ikwu okwu, ịgụ egwu na ịgba egwu.
+Ọ bụ nwa afọ Ekiti onye bi na Lọndọn.
 Ihe ngosi ahụ kpughere Nwaada Kareem ga-emefu ego nrite ahụ, nke a na-ekwu na ọ dị nde N30 ($68,000), na nnabata ihe ngosi njem na Nigeria, ya na itinye ego n'ihe ọrụ ebere.
 Bigamy: Alụmdi na nwunye nwa nwanyị ASD, Mulan na Abubakar Musa Abubakar nke Dr Muhammad Bashir Maru
 Anyị agaghị echezọ mkpu ákwá Ernesto Che Guevera na ' Ọ bụrụ na ị wee iwe n'ihi ikpe na-ezighị ezi ọbụla, ị bụ onye otu m'. Ọ bụ nke a na-akwalite ezi ịhụ mba n'anya n'ụzọ na-enweghị atụ dịka ihe na-egbochi ikpe ziri ezi na ịha nhatanha n'ihi ihe niile.
 A gaghị ekpe ikpe ziri ezi ruo mgbe ndị o metụtaghị ga-ewe iwe dịka ndị o metụtara - Benjamin Franklin
-Site na nzụlite na nkata nke mmadụ, ikpe e zighi ezi bụ ihe na-emegbu ndị e lere anya dịka ndị ọnụ erughi n'okwu ma mgba a na-agbara ikpe ziri ezi malitere kemgbe ụwa. Ka a sịkwa ihe mere na okwu Benjamin Franklin adịghị anwụ anwu dịka ọ mere ọtụtụ iri afọ gara aga mgbe ọ kwupụtara ha. Okwu ndị a bụ ihe na-eduzi anyị taa dịka anyị tiri mkpu maka ikpe Abubakar Musa Abubakar, bụ onye Alhaji Sani Dauda (ASD), onyeisi oche 'Peugeot Automobile Nigeria Limited' na-akpagbu mgbe niile. 
-Na Naịjiria n'oge ochie, ndị ji ego dịka ASD na-eme ihe ike karịa ndị ọzọ dịka inweta ihe ha chọrọ, izugbe ndị mmadụ ime ihe. Nke a bụ mgbe ya na ụdị ya mere okwu ya dịka iwu, na mbọ ọbụla a gbara iji megide ebumnuche ha ka a ga-ahụ ihe dị nsọ ma kwanye ndị agha iji megbuo, yie egwu, menye ụjọ ma mee ndị na-emegide ha ihe ihere. N'ụbọchị ọjọọ ndị a, e kwenyere na ụfọdụ ndị ọrụ mmanye iwu, ndị ọrụ mgbasa ozi na ndị ọ̀kà ikpe arụrụ ala bụ ndị ọ na-akwụ ụgwọ ma na-adị njikere ime ihe ọ chọrọ. Ọ nwere ike bụrụ ihe kpatara ụdị ya ji pụọ n'enweghị ntaramahụhụ. 
+Site na nzụlite na nkata nke mmadụ, ikpe e zighi ezi bụ ihe na-emegbu ndị e lere anya dịka ndị ọnụ erughi n'okwu ma mgba a na-agbara ikpe ziri ezi malitere kemgbe ụwa.
+Ka a sịkwa ihe mere na okwu Benjamin Franklin adịghị anwụ anwu dịka ọ mere ọtụtụ iri afọ gara aga mgbe ọ kwupụtara ha.
+Okwu ndị a bụ ihe na-eduzi anyị taa dịka anyị tiri mkpu maka ikpe Abubakar Musa Abubakar, bụ onye Alhaji Sani Dauda (ASD), onyeisi oche 'Peugeot Automobile Nigeria Limited' na-akpagbu mgbe niile. 
+Na Naịjiria n'oge ochie, ndị ji ego dịka ASD na-eme ihe ike karịa ndị ọzọ dịka inweta ihe ha chọrọ, izugbe ndị mmadụ ime ihe.
+Nke a bụ mgbe ya na ụdị ya mere okwu ya dịka iwu, na mbọ ọbụla a gbara iji megide ebumnuche ha ka a ga-ahụ ihe dị nsọ ma kwanye ndị agha iji megbuo, yie egwu, menye ụjọ ma mee ndị na-emegide ha ihe ihere.
+N'ụbọchị ọjọọ ndị a, e kwenyere na ụfọdụ ndị ọrụ mmanye iwu, ndị ọrụ mgbasa ozi na ndị ọ̀kà ikpe arụrụ ala bụ ndị ọ na-akwụ ụgwọ ma na-adị njikere ime ihe ọ chọrọ.
+Ọ nwere ike bụrụ ihe kpatara ụdị ya ji pụọ n'enweghị ntaramahụhụ. 
 N'agbanyeghị na onye ọchụnta ego ka na-awagharị n'obi ọjọọ nke oge gara aga, mana ihe ọ ghọtaghị bụ na ihe agbanweela, na Naịjiria nke taa ọ dịghị onye karịrị iwu.
-N'ahịrị nke usoro okwu mgbe ochie, 'Agụ owuru anaghị agbanwe agwa ya', ọ bụ eziokwu maka nnabata pụtara ìhè nke ASD nke jupụtara n'ihe e mere n'oge gara aga, n'ihi nke a, na-eleda ụlọ ikpe anya, ikpe ikpe iji chụọ nwa ya nwaanyị bụ Nasiba Sani Dauda, kpuchie nwa ya nwoke bụ Shehu Sani Dauda, onye ọkaikpe Sharia Alkali Murtala Nasir Al-Misiry na otu onye, Abdullahi Kaloma. Ha jikọrọ ọnụ mee mpụ, mwepụ nke imebi iwu, njide ezighi ezi, mkpọrọ ụgha, ịkpata mmerụ ahụ, ịlụgharị di na nwunye na nkwụsị ikpe dị adị n'ụlọ ikpe ukwuu nke Kawo Sharia, Kaduna n'ikpe dị n'etiti Abubakar Musa Abubakar na Nasiba Sani Dauda nke megidere ngalaba 45, 46, 58, 217, 229, 230, 239, 365, 366 na 369 n'usoro iwu nke Kaduna steeti, Naịjiria. 
+N'ahịrị nke usoro okwu mgbe ochie, 'Agụ owuru anaghị agbanwe agwa ya', ọ bụ eziokwu maka nnabata pụtara ìhè nke ASD nke jupụtara n'ihe e mere n'oge gara aga, n'ihi nke a, na-eleda ụlọ ikpe anya, ikpe ikpe iji chụọ nwa ya nwaanyị bụ Nasiba Sani Dauda, kpuchie nwa ya nwoke bụ Shehu Sani Dauda, onye ọkaikpe Sharia Alkali Murtala Nasir Al-Misiry na otu onye, Abdullahi Kaloma.
+Ha jikọrọ ọnụ mee mpụ, mwepụ nke imebi iwu, njide ezighi ezi, mkpọrọ ụgha, ịkpata mmerụ ahụ, ịlụgharị di na nwunye na nkwụsị ikpe dị adị n'ụlọ ikpe ukwuu nke Kawo Sharia, Kaduna n'ikpe dị n'etiti Abubakar Musa Abubakar na Nasiba Sani Dauda nke megidere ngalaba 45, 46, 58, 217, 229, 230, 239, 365, 366 na 369 n'usoro iwu nke Kaduna steeti, Naịjiria. 
 Dịka mmadụ ga-atụ anya na mmekọ ya na Abubakar Musa Abubakar onye nwere ike ịbụ ọgọ ya nwoke abụghị ihe ọhụụ ma ọ gaghị abụ onye ikpeazụ ga-anagide n'ihe ọjọọ dị otu a site na enweghi amamihe beelụsọ ma a ga-akwụsị onye ọchụnta ego ime ihe n'usoro nkwụmọtọ.
-Ugbu a, a na-enyochaghachi ọnọdụ ahụ ya na Abubakar Musa Abubakar, onye lụrụ Nasiba Sani Dauda n'àbàlị̀ iri abụọ na anọ nke ọnwa Disemba, 2016. A ga-echeta na alụmdi a bidoro na ntọala nke ịhụnanya, udo na nkwekọrịta ruo ọnwa ole na ole a banyere na alụmdi mgbe nna Nasiba - Alhaji Sani Dauda - malitere itinye anya n'okwu ezinụlọ ahụ kwa ụbọchị ma mesịa gwa nwa ya nwaanyị ka ọ ghara ịlụ di ahụ n'ihi ebumnuche na-edobeghị anya. Arịrịọ a rịọrọ ASD ka ọ laghachi Nasiba n'alụmdi na nwunye ya kpụrụ afọ n'ala, mana ọ manyere Nasiba ka o guzobe okwu nke Khul (arịrịọ maka ịgba alụkwaghịm) n'ihu ụlọ ikpe Sharia mbụ, Tudun Wada, Kaduna ebe e nwetara ikpe na-ese okwu ma kwupụta alụkwaghịm n'etiti di na nwunye ahụ na-enweghị mgbakwunye na ụkpụrụ nke 'nemo iudex in causa sua' na 'audi alteram pertem' nke metụtara ndị ahụ.
-Agbanyeghị, Abubakar Musa Abubakar enweghị afọ ojuju na ikpe ahụ ụlọ ikpe dị ala wetara nke igbu ọchụ sitere n'ụlọ ikpe nke Sharia, Kawo, Kaduna nke e nyere onye na-azaghachi ma mechaa rịọ maka ikpe ziri ezi nke ụlọ ikpe dị ala n'ụlọ ikpe dị elu nke Sharia ebe e nyere Abubakar Musa Abubakar ikpe ahụ site n'ịsụgharị na ịwezụga ikpe nke ụlọ ikpe dị ala maka enweghị ikike. Ma nnọchite anya akwụkwọ e nyere maka igbu egbu na mkpebi ụlọikpe nke Sharia ukwu ka e nyere onye nzara ọnụ (Nasiba). Ọ bụ naanị ikpe a na-agbasokarị nke dị ruo taa.
-Njide na nnwụchi nke Alhaji Sani Dauda na ndị ọzọ maka ịda iwu, ịlụgharị di na nwunye na nzuzo, mpụ na ebubo ndị ọzọ na-aga n'ihu na-egosi na ọkwa onyeisi ala Muhammadu Buhari ọzọ agaghị agbachi mmebi iwu site n'akụkụ ọbụla. Omume nke ASD nwere ike ibute usoro ihe ọjọọ jupụtara na mmebi udo, ọgba aghara, wdg. N'ihe niile, ọ bụ mkparị na ngalaba ikpe, ịkwado iwu na ịnwa imebi iwu Sharia. Kedụ ka onye kpọrọ onwe ya onye Alakụba si lụta nwunye onye ọzọ?
-N'ịkatọ ikpe ezighi ezi na aka dị elu nke ASD na-akpali, ka ikpe a gosipụta ịdọ aka ná ntị na-emetụta ihe ndị ahụ; oge agafeela mgbe ndị nwere akụ na ụba na-eme ihe ha chọrọ site na inye ndị ọrụ iwu aka azụ na isonye ndị otu ụlọ ikpe na-eme ihe masịrị ha. Njide ya ezigara ndị na-emebi iwu na-enweghị nchegharị ịdọ aka ná ntị e nwere Sherriff ọhụrụ n'obodo ugbu a nakwa na a gaghịzi anabata ihe ha na-eme. Anya niile dị na ngalaba ikpe ma ha ga-ele anya ebe ọzọ ebe ebibiworo ụlọ ikpe site mkparị usoro ikpe ikpe na nlelị maka usoro ikpe.
-Kemgbe ntiwapụ nke 'imbroglio' na-arị elu, ASD n'amaghị ama na-akwado ndị otu na mmadụ dị iche iche ire akụkọ ụgha site na mgbasa ozi na-egosi na ya na nwa ya nwaanyị dị ka ndị a tara ahụhụ kama ndị na-arụ arụrụala megide Chineke na ndị mmadụ. Otu n'ime ndị otu a bụ 'Muslim Lawyers Association of Nigeria' nke steeti Kaduna, otu kwesịrị ịnọpụ iche n'okwu metụtara ndị abụọ na-asọrịta mpi bụ ndị Alakụba maọbụ kwụrụ n'eziokwu kama ha pụtara na mmechu ihu kwụ nyere ndị mere mpụ (ASD na ndị ọzọ) bụ ndị kpachaara anya mebie ụkpụrụ nke alụmdi na nwunye nke Alakụba site n'ịlụ nnukwu nwaanyị. Site n'omume a, ndị MULAN nke steeti Kaduna e gosipụtara na ha nwere akọ na uche. Kedu ka nzukọ ga-esi wedaa onwe ya dịka onye dị oke mma. 
-Onye ọbụla kwesịrị ịja Abubakar Musa Abubakar mma n'ịga n'ụzọ nke nsọpụrụ na igbochi mmekọrịta nke ndị be ya, ndị otu ya na puku ọtụtụ ndị na-eso ụzọ ya iwere iwu n'aka ha yana maka okwukwe na-adịgide n'usoro ikpe ala anyị. Eboghi Abubakar ebubo ime ihe ọjọọ ọbụla mana a maara ya dịka onye na-akwụba aka ọtọ, onye na-arụsi ọrụ ike na enweghị obi ọjọọ. N'agbanyeghị mkpasu iwe, obi mgbawa, mmaja, imebi aha, mwakpo na enweghị nchekwa, nkatọ, mpụ na iyi ndụ egwu na ndị ọzọ, Abubakar Musa Abubakar kwụ chịm ma kpebisie ike inweta ikpe ziri ezi site n'ụzọ iwu kwadoro.
-Ka anyị nwee olile anya na na njedebe ya niile, a ga-ekpe ikpe ziri ezi n'eleghị mmadụ anya n'ihu, n'ihi na ihe ọzọ ga-abụ ịgba ume nke inyere onwe aka, mmebi iwu na ịkpọ oku aghara aghara. Ọha obodo nke na-enye mmadụ ole na ole ahọpụtara ikpe ziri ezi bụ ala na-eme nri maka ọgba aghara. Ka ndị nwere ntị gee ntị.
-Anyị agaghị echezọ mkpu ákwá Ernesto Che Guevera na ' Ọ bụrụ na ị wee iwe n'ihi ikpe na-ezighị ezi ọbụla, ị bụ onye otu m'. Ọ bụ nke a na-akwalite ezi ịhụ mba n'anya n'ụzọ na-enweghị atụ dịka ihe na-egbochi ikpe ziri ezi na ịha nhatanha n'ihi ihe niile.
-Dr Maru si Abuja dee, e nwere ike iru ya na 'email'. 
-Bill iji nyekwuo ndị omebeiwu ego gafere ọgụgụ nke abụọ. 
+Ugbu a, a na-enyochaghachi ọnọdụ ahụ ya na Abubakar Musa Abubakar, onye lụrụ Nasiba Sani Dauda n'àbàlị̀ iri abụọ na anọ nke ọnwa Disemba, 2016.
+A ga-echeta na alụmdi a bidoro na ntọala nke ịhụnanya, udo na nkwekọrịta ruo ọnwa ole na ole a banyere na alụmdi mgbe nna Nasiba - Alhaji Sani Dauda - malitere itinye anya n'okwu ezinụlọ ahụ kwa ụbọchị ma mesịa gwa nwa ya nwaanyị ka ọ ghara ịlụ di ahụ n'ihi ebumnuche na-edobeghị anya.
+Arịrịọ a rịọrọ ASD ka ọ laghachi Nasiba n'alụmdi na nwunye ya kpụrụ afọ n'ala, mana ọ manyere Nasiba ka o guzobe okwu nke Khul (arịrịọ maka ịgba alụkwaghịm) n'ihu ụlọ ikpe Sharia mbụ, Tudun Wada, Kaduna ebe e nwetara ikpe na-ese okwu ma kwupụta alụkwaghịm n'etiti di na nwunye ahụ na-enweghị mgbakwunye na ụkpụrụ nke 'nemo iudex in causa sua' na 'audi alteram pertem' nke metụtara ndị ahụ.
+Agbanyeghị, Abubakar Musa Abubakar enweghị afọ ojuju na ikpe ahụ ụlọ ikpe dị ala wetara nke igbu ọchụ sitere n'ụlọ ikpe nke Sharia, Kawo, Kaduna nke e nyere onye na-azaghachi ma mechaa rịọ maka ikpe ziri ezi nke ụlọ ikpe dị ala n'ụlọ ikpe dị elu nke Sharia ebe e nyere Abubakar Musa Abubakar ikpe ahụ site n'ịsụgharị na ịwezụga ikpe nke ụlọ ikpe dị ala maka enweghị ikike.
+Ma nnọchite anya akwụkwọ e nyere maka igbu egbu na mkpebi ụlọikpe nke Sharia ukwu ka e nyere onye nzara ọnụ (Nasiba). Ọ bụ naanị ikpe a na-agbasokarị nke dị ruo taa.
+Njide na nnwụchi nke Alhaji Sani Dauda na ndị ọzọ maka ịda iwu, ịlụgharị di na nwunye na nzuzo, mpụ na ebubo ndị ọzọ na-aga n'ihu na-egosi na ọkwa onyeisi ala Muhammadu Buhari ọzọ agaghị agbachi mmebi iwu site n'akụkụ ọbụla.
+Omume nke ASD nwere ike ibute usoro ihe ọjọọ jupụtara na mmebi udo, ọgba aghara, wdg.
+N'ihe niile, ọ bụ mkparị na ngalaba ikpe, ịkwado iwu na ịnwa imebi iwu Sharia.
+Kedụ ka onye kpọrọ onwe ya onye Alakụba si lụta nwunye onye ọzọ?
+N'ịkatọ ikpe ezighi ezi na aka dị elu nke ASD na-akpali, ka ikpe a gosipụta ịdọ aka ná ntị na-emetụta ihe ndị ahụ;
+Oge agafeela mgbe ndị nwere akụ na ụba na-eme ihe ha chọrọ site na inye ndị ọrụ iwu aka azụ na isonye ndị otu ụlọ ikpe na-eme ihe masịrị ha.
+Njide ya ezigara ndị na-emebi iwu na-enweghị nchegharị ịdọ aka ná ntị e nwere Sherriff ọhụrụ n'obodo ugbu a nakwa na a gaghịzi anabata ihe ha na-eme.
+Anya niile dị na ngalaba ikpe ma ha ga-ele anya ebe ọzọ ebe ebibiworo ụlọ ikpe site mkparị usoro ikpe ikpe na nlelị maka usoro ikpe.
+Kemgbe ntiwapụ nke 'imbroglio' na-arị elu, ASD n'amaghị ama na-akwado ndị otu na mmadụ dị iche iche ire akụkọ ụgha site na mgbasa ozi na-egosi na ya na nwa ya nwaanyị dị ka ndị a tara ahụhụ kama ndị na-arụ arụrụala megide Chineke na ndị mmadụ.
+Otu n'ime ndị otu a bụ 'Muslim Lawyers Association of Nigeria' nke steeti Kaduna, otu kwesịrị ịnọpụ iche n'okwu metụtara ndị abụọ na-asọrịta mpi bụ ndị Alakụba maọbụ kwụrụ n'eziokwu kama ha pụtara na mmechu ihu kwụ nyere ndị mere mpụ (ASD na ndị ọzọ) bụ ndị kpachaara anya mebie ụkpụrụ nke alụmdi na nwunye nke Alakụba site n'ịlụ nnukwu nwaanyị.
+Site n'omume a, ndị MULAN nke steeti Kaduna e gosipụtara na ha nwere akọ na uche.
+Kedu ka nzukọ ga-esi wedaa onwe ya dịka onye dị oke mma?
+Onye ọbụla kwesịrị ịja Abubakar Musa Abubakar mma n'ịga n'ụzọ nke nsọpụrụ na igbochi mmekọrịta nke ndị be ya, ndị otu ya na puku ọtụtụ ndị na-eso ụzọ ya iwere iwu n'aka ha yana maka okwukwe na-adịgide n'usoro ikpe ala anyị.
+Eboghi Abubakar ebubo ime ihe ọjọọ ọbụla mana a maara ya dịka onye na-akwụba aka ọtọ, onye na-arụsi ọrụ ike na enweghị obi ọjọọ.
+N'agbanyeghị mkpasu iwe, obi mgbawa, mmaja, imebi aha, mwakpo na enweghị nchekwa, nkatọ, mpụ na iyi ndụ egwu na ndị ọzọ, Abubakar Musa Abubakar kwụ chịm ma kpebisie ike inweta ikpe ziri ezi site n'ụzọ iwu kwadoro.
+Ka anyị nwee olile anya na na njedebe ya niile, a ga-ekpe ikpe ziri ezi n'eleghị mmadụ anya n'ihu, n'ihi na ihe ọzọ ga-abụ ịgba ume nke inyere onwe aka, mmebi iwu na ịkpọ oku aghara aghara.
+Ọha obodo nke na-enye mmadụ ole na ole ahọpụtara ikpe ziri ezi bụ ala na-eme nri maka ọgba aghara.
+Ka ndị nwere ntị gee ntị.
+Anyị agaghị echezọ mkpu ákwá Ernesto Che Guevera na 'Ọ bụrụ na ị wee iwe n'ihi ikpe na-ezighị ezi ọbụla, ị bụ onye otu m'.
+Ọ bụ nke a na-akwalite ezi ịhụ mba n'anya n'ụzọ na-enweghị atụ dịka ihe na-egbochi ikpe ziri ezi na ịha nhatanha n'ihi ihe niile.
+Bill iji nyekwuo ndị omebeiwu ego gafere ọgụgụ nke abụọ.
 Ego ndị omebe iwu na-eji arụ ọrụ mpaghara jupụtara maka nrụrụ aka.
 Ọtụtụ ọrụ ahụ bụ ndị e ji nwayọọ arụ maọbụ ndị agbahapụrụ.
 N'ọnọdụ ụfọdụ, ndị omebe iwu na-eji ihe ndị ahụ akwalite kampeenụ ha.
@@ -9583,9 +9618,20 @@ N'ịga n'ihu, ọ sịrị, 'Na mbu, paspọtụ Bobrisky gosiri na ọ bụ nw
 Ọ bụrụ na Bobrisky na-eji ụlọ mposi ụmụnwoke, anyị nwere ike ịghọta. Dịka m na-ekwu, anyị nwetara akụkọ banyere otu nwaanyị were iwe n'ọdụ ụgbọelu nke Nigeria n'ihi na n'ụbọchị a ọ hụrụ Bobrisky ka ọ na-eji ụlọ mposi ụmụnwaanyị n'ọdụ ụgbọelu Abuja.
 Nye m, anyị emeela ntakịrị ihe anyị nwere ike ime; anyị ahapụla ihe niile n'aka ndị dọkịta.
 Bobrisky: 'Nwoke', 'Nwaanyị', ndị Naịjirịa gbagwojuru anya banyere nnọchiaha a ga-akpọ Idris Okuneye
-E mechiri ebe ncheta ọmụmụ bobrisky na Satọde mgbe ndị uwe ojii
-nọchibidoro ya.
-Ndị Naịjirịa dịka ndị ọ gbagwojuru anya banyere nnọchiaha kwesịrị ka e tinyere Idris Okuneye, onye gbanworo ụdị ya. Mmemme ncheta ọmụmụ Bobrisky bụ nke e mere ụbọchị Satọdee mgbe ndị uwe ojii gbara ebe ahụ gburugburu. Ndị 'Sahara Report' na-akọ na ndị Naịjiria na mgbasa ozi nke soshal midia kewara n'usoro iwu nke ndị uwe ojii ebe ụfọdụ katọrọ ndị uwe ojii maka imebi ikike Bobrisky nwere, ndị ọzọ chere na omume Okuneye bụ omume rụrụ arụ. Mana, nnọchiaha a ga-eji kọwaa okike/jenda Bobrisky bụ nke rụpụtara n'arụmụka na ịntanetị. Bisi Alimi, nwoke nwere mmasị n'ụmụnwoke ibe ya na onye nkwado ikike LGBTQ dọrọ aka na ntị na nnọchiaha kwesịrị ka e ji kọwaa Bobrisky bụ 'ọ/she' na 'ya/her'. Iji nke a ga-enyere aka belata ihere ma gosipụta ma ị hụrụ n'anya n'ezie. N'otu aka ahụ, Sarah Ogunmiyiwa jiri akara 'twitter', @sara_ogun, meziri onye ọrụ 'Twitter' ọzọ, Olusegun Iselaiye @10tama22, maka iji 'ya/his' kọwaa Bobrisky. Bobrisky na-agba ọsọ dịka ndị uweojii wakporo ya, mechie ebe ọ na-eme mmemme ncheta ọmụmụ afọ iri abụọ na asaa na Lekki, chụpụ mmadụ niile', Iselaiye dere nke Ogunmiyiwa zara, 'Ọ/her!!!' Nnọchiaha ya bụ ọ(she) /ya(her). N' otu vidiyo, Bobrisky jụrụ,' Onye ka ọ bụ Bro?', iji mee ka ndị Naịjiria mata ya dịka nwaanyị 
+E mechiri ebe ncheta ọmụmụ bobrisky na Satọde mgbe ndị uwe ojii nọchibidoro ya.
+Ndị Naịjirịa dịka ndị ọ gbagwojuru anya banyere nnọchiaha kwesịrị ka e tinyere Idris Okuneye, onye gbanworo ụdị ya.
+Mmemme ncheta ọmụmụ Bobrisky bụ nke e mere ụbọchị Satọdee mgbe ndị uwe ojii gbara ebe ahụ gburugburu.
+Ndị 'Sahara Report' na-akọ na ndị Naịjiria na mgbasa ozi nke soshal midia kewara n'usoro iwu nke ndị uwe ojii 
+Ebe ụfọdụ katọrọ ndị uwe ojii maka imebi ikike Bobrisky nwere, ndị ọzọ chere na omume Okuneye bụ omume rụrụ arụ.
+Mana, nnọchiaha a ga-eji kọwaa okike/jenda Bobrisky bụ nke rụpụtara n'arụmụka na ịntanetị.
+Bisi Alimi, nwoke nwere mmasị n'ụmụnwoke ibe ya na onye nkwado ikike LGBTQ dọrọ aka na ntị na nnọchiaha kwesịrị ka e ji kọwaa Bobrisky bụ 'ọ/she' na 'ya/her'.
+Iji nke a ga-enyere aka belata ihere ma gosipụta ma ị hụrụ n'anya n'ezie.
+N'otu aka ahụ, Sarah Ogunmiyiwa jiri akara 'twitter', @sara_ogun, meziri onye ọrụ 'Twitter' ọzọ, Olusegun Iselaiye @10tama22, maka iji 'ya/his' kọwaa Bobrisky.
+Bobrisky na-agba ọsọ dịka ndị uweojii wakporo ya
+Mechie ebe ọ na-eme mmemme ncheta ọmụmụ afọ iri abụọ na asaa na Lekki, chụpụ mmadụ niile'.
+Iselaiye dere nke Ogunmiyiwa zara, 'Ọ/her!!!' Nnọchiaha ya bụ ọ(she) /ya(her).
+N' otu vidiyo, Bobrisky jụrụ,' Onye ka ọ bụ Bro?'
+Iji mee ka ndị Naịjiria mata ya dịka nwaanyị
 Mmechi ókè: Ọnụ oriri Naịjịrịa na-agbada n'ike, ụlọ ọrụ a kpọrọ 'National Bureau of Statistics' na-ekwu
 Dịka ụlọ ọrụ ahụ si kwuo, ịrị elu nri rịrị bụ mmụba/mbawanye nke ọnụahịa mmanụ na abụba, anụ, achịcha na ọka, nduku, ji, azụ na ihe ndị ọzọ kpatara ya.
 Ókè-ala Naịjiria/Cameroon 
@@ -9614,8 +9660,12 @@ Nke a ga-aga n'usoro mmechi gọọmentị na ebumnuche mgbake gafee mpaghara �
 N’okwu ya na mbụ, onyeisi oche nke Omeiwu nke steeti Borno, Abdulkarim Lawan, kwuru na 'bill' ahụ ga-aba nnukwu uru n’inyere ndị gbara ọsọ ndụ aka site na nhazi nke ọrụ mmadụ na mmepe na steeti ahụ.
 Mwakpo ụlọikpe sitere na DSS na ndị 'Task Force' nke Lagos State: Aro maka ụlọ ikpe site n'aka Ebun-Olu Adegboruwa
 Beelụsọ ma anyị na-eme ngwa ngwa ugbu a, ọ dị ka a ga-enwe ọtụtụ ihe n'ọdịnihu.
-Ana m aja ndị isi 'Nigerian Bar Association' mma maka ịzaghachi ngwa ngwa na mwakpo ndị DSS wakporo ụlọikpe. Nkwupụta e nyere na-agba ume ma na-abịa n'oge. Nke ahụ bụ ihe a na-atụ anya ya, n'ihi na ebumnuche 'NBA' bụ ịkwalite usoro iwu.
-M na-atụ aro n'usoro ndị ọzọ: 1. CJN na AGF ga-ezukọ iji kpaa maka ụzọ a ga-eji chebe ndị ikpe na ụlọ ikpe pụọ na mwakpo ọzọ. Dịka ọ na-eme na Abuja, ọ bụkwa ihe na-eme n' ụlọ ikpe etiti dị elu 'Federal High Court' na Legoosụ ebe a na-akọ na ndị ọrụ na-ahụ maka Gburugburu ebe obibi na Lagos wakporo ụlọ ikpe ahụ ma sụọ onye ọrụ ikpe mma.
+Ana m aja ndị isi 'Nigerian Bar Association' mma maka ịzaghachi ngwa ngwa na mwakpo ndị DSS wakporo ụlọikpe. 
+Nkwupụta e nyere na-agba ume ma na-abịa n'oge.
+Nke ahụ bụ ihe a na-atụ anya ya, n'ihi na ebumnuche 'NBA' bụ ịkwalite usoro iwu.
+M na-atụ aro n'usoro ndị ọzọ:
+1. CJN na AGF ga-ezukọ iji kpaa maka ụzọ a ga-eji chebe ndị ikpe na ụlọ ikpe pụọ na mwakpo ọzọ.
+Dịka ọ na-eme na Abuja, ọ bụkwa ihe na-eme n' ụlọ ikpe etiti dị elu 'Federal High Court' na Legoosụ ebe a na-akọ na ndị ọrụ na-ahụ maka Gburugburu ebe obibi na Lagos wakporo ụlọ ikpe ahụ ma sụọ onye ọrụ ikpe mma.
 Ebumnuche nke nzukọ a bụ iji mee ka e chekwaa ndị ụlọikpe na ụlọ ọrụ ndị uweojii dịka a na-eme n'ụlọ omebeiwu nke Naịjirịa (National Assembly) na nke steeti (State House of Assembly).
 2. Iji hụ na ndị DSS nyere nkọwa ihe ndị mere na Disemba 6, 2019.
 3. Iji mee ka ndị ndu ndị omebe, ndị kọmitii na-ekpe ikpe na ụlọọrụ na-ahụ maka ikike mmadụ na mmanye iwu zukọọ iji mee ka e webata DSS n'akwụkwọ.
@@ -9629,20 +9679,28 @@ Mgbe ahụ, ndị ndụmọdụ kwésị́rị́ itinye ọnụ n'okwu ndị a m
 Beelụsọ ma anyị na-eme ngwa ngwa ugbu a, ọ dị ka a ga-enwe ọtụtụ ihe n'ọdịnihu.
 Ebun-Olu Adegboruwa, nnukwu ọka iwu nke Naịjirịa a kpọrọ 'Senior Advocate of Nigeria' 
 Nhụsianya: 763,603 vootu na 162,180 - Wike ji gafee Awara na Rivers
-N'okpuru ọchịchị Degema, Wike nwetara vootu 12,133 ebe Awara nwere 5,071. N'ime ngalaba iri na abụọ e nwere n'okpuru ọchịchị Asari-Toru, o nwere vootu 32,172 ebe Awara ji 18,945; na ngalaba iri na abụọ e nwere n'okpuru ọchịchị Ogo/Bolo, o ji vootu 11,855 ebe Awara nwere 814. Ihe ịtụnanya n'ụbọchị ahụ bụ na ngalaba iri na asaa dị n'okpuru ọchịchị Obio/Akpor, ebe o nwetara vootu 281,164 ebe Awara ji naanị vootu 7,495.
+N'okpuru ọchịchị Degema, Wike nwetara vootu 12,133 ebe Awara nwere 5,071.
+N'ime ngalaba iri na abụọ e nwere n'okpuru ọchịchị Asari-Toru, o nwere vootu 32,172 ebe Awara ji 18,945; na ngalaba iri na abụọ e nwere n'okpuru ọchịchị Ogo/Bolo, o ji vootu 11,855 ebe Awara nwere 814.
+Ihe ịtụnanya n'ụbọchị ahụ bụ na ngalaba iri na asaa dị n'okpuru ọchịchị Obio/Akpor, ebe o nwetara vootu 281,164 ebe Awara ji naanị vootu 7,495.
 Nyesom Wike, Gọvanọ nke Rivers steeti eburula ụzọ na asọmpi ntuli aka ọchịchị gọvanọ na March 9 na steeti ahụ.
-Dịka na Tuesday, mgbe Independent National Electoral Commission (INEC) kwupụtara rezọọtụ sitere n'okpuru ọchịchị iri na ise, Wike, onye ndọrọndọrọ nke People's Democratic Party (PDP), ji vootu 426,369 merie Biokpomabo Awara nke African Action Congress onye nwere vootu 129,855. Nke o ji oke vootu 296,514 gafee Awara.
-Ndú/Otu a karịrị mgbe kọmitii ahụ kwupụtara rezọọtụ anọ ọzọ na Wednesde.
-N'okpuru ọchịchị Degema, Wike nwetara vootu 12,133 ebe Awara nwere 5,071. N'ime ngalaba iri na abụọ e nwere n'okpuru ọchịchị Asari-Toru, o nwere vootu 32,172 ebe Awara ji 18,945; na ngalaba iri na abụọ e nwere n'okpuru ọchịchị Ogo/Bolo, o ji vootu 11,855 ebe Awara nwere 814. Ihe ịtụnanya n'ụbọchị ahụ bụ na ngalaba iri na asaa dị n'okpuru ọchịchị Obio/Akpor, ebe o nwetara vootu 281,164 ebe Awara ji naanị vootu 7,495.
+Dịka na Tuesday, mgbe Independent National Electoral Commission (INEC) kwupụtara rezọọtụ sitere n'okpuru ọchịchị iri na ise, Wike, onye ndọrọndọrọ nke People's Democratic Party (PDP), ji vootu 426,369 merie Biokpomabo Awara nke African Action Congress onye nwere vootu 129,855.
+Nke o ji oke vootu 296,514 gafee Awara.
+Mmeri ahụ karịrị mgbe kọmitii ahụ kwupụtara rezọọtụ anọ ọzọ na Wednesde.
+N'okpuru ọchịchị Degema, Wike nwetara vootu 12,133 ebe Awara nwere 5,071.
+N'ime ngalaba iri na abụọ e nwere n'okpuru ọchịchị Asari-Toru, o nwere vootu 32,172 ebe Awara ji 18,945;
+Nna ngalaba iri na abụọ e nwere n'okpuru ọchịchị Ogo/Bolo, o ji vootu 11,855 ebe Awara nwere 814.
+Ihe ịtụnanya n'ụbọchị ahụ bụ na ngalaba iri na asaa dị n'okpuru ọchịchị Obio/Akpor, ebe o nwetara vootu 281,164 ebe Awara ji naanị vootu 7,495.
 Rezọọtụ ndị a wetara ngụkọta vootu Wike 763,603 ebe Awara nwere 162,180 - òkè nke ruru 601,423 vootu.
 A kwụsịtụrụ ngagharị iwe ahụ nwa oge, ọ ga-amalite n’elekere atọ nke ehihie.
 E nwere naanị okpuru ọchịchị anọ fọdụrụnụ a ga-akpọpụta.
 Nhụsianya: Gọvanọ a họpụtara n' Adamawa, Fintiri gafere ka o merichara Bindo
-Ụkọchukwu Eric Theman, onye ndọrọndọrọ ọchịchị, ejirila mkpesa gaa n'ụlọ ikpe ahụ, na-ekwu na mwepụ akara ngosi pati ahụ na mpempe akwụkwọ vootu. Mana Justice Abdulaziz Waziri kpebiri na Theman na MRDD emeghị ihe ha kwuru, na-ekwu na 'onye kwuru okwu aghaghị igosipụta ya.'
+Ụkọchukwu Eric Theman, onye ndọrọndọrọ ọchịchị, ejirila mkpesa gaa n'ụlọ ikpe ahụ, na-ekwu na mwepụ akara ngosi pati ahụ na mpempe akwụkwọ vootu.
+Mana Justice Abdulaziz Waziri kpebiri na Theman na MRDD emeghị ihe ha kwuru, na-ekwu na 'onye kwuru okwu aghaghị igosipụta ya.'
 Ahmadu Umaru Fintiri, Gọvanọ-ahọpụtara nke steeti Adamawa, gbanarịrị ọnwụnwa mbụ ka e wepụ ya n'ọchịchị gọvanọ ya - naanị mgbe awa ole na ole gachara.
 Iji bụrụ onye mmeri na ntuli aka gọvanọ steeti Adamawa, Fintiri enwetala vootu 376,552 nke o ji merie Jibrilla Bindow, Gọvanọ steeti ahụ bụ onye nhọpụta nke All Progressives Congress (APC), onye nwetara vootu 336,386.
 Independent National Electoral Commission (INEC) e kwuputala na ọ bụ onye tuuru ugo mgbe ọ fọdụrụ obere oge ka ọ kụọ elekere mbụ nke ụtụtụ na Fraide. Mgbe awa ole na ole gachara, ụlọ ikpe ukwuu ahụ dị na Yola kagburu ikpe nke Movement for The Restoration and Defense of Democracy (MRDD) gbara, na-achọ ka a kagbuo ntuli aka ka a tụọ nke ọhụrụ.
-Reverend Eric Theman, onye ndoro ndọrọndọrọ ọchịchị, ejirila mkpesa bịakwute ụlọikpe ahụ, na-ekwu na mwepụ akara ngosi pati ahụ na mpempe akwụkwọ vootu. Mana Justice Abdulaziz Waziri kpebiri na Theman na MRDD emeghị ihe ha kwuru, na-ekwu 'onye na-ekwu okwu aghaghi igosiputa.'
+Reverend Eric Theman, onye ndoro ndọrọndọrọ ọchịchị, ejirila mkpesa bịakwute ụlọikpe ahụ, na-ekwu na mwepụ akara ngosi pati ahụ na mpempe akwụkwọ vootu.
+Mana Justice Abdulaziz Waziri kpebiri na Theman na MRDD emeghị ihe ha kwuru, na-ekwu 'onye na-ekwu okwu aghaghi igosiputa.'
 Ọzọkwa na Fraịdee, Kassim Gaidam, onye na-ahụ maka ndị ọrụ maka ntụliaka (REC) na-elekọta steeti Adamawa, nyere Gọvanọ-Elect Fintiri akwụkwọ Asambodo nlọghachi.
 Na-ekwu okwu na nnọkọ ahụ, nke e mere na isi ụlọ ọrụ INEC dị na Yola na Fraịde, Fintiri kelere ndị nhọpụta ndị ọchịchị maka ntụkwasị obi ha nwere n’ebe ọ nọ.
 Akụkọ mgbanye: AGF weghaara ebubo nke ikpe nke Sowore mgbe mwakpo ụlọ ikpe DSS gasịrị
