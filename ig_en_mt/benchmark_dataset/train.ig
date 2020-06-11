@@ -957,8 +957,10 @@ George Weah na Muhammadu Buhari
 Onyeisiala mba Liberia bụ George Weah bịara zute onyeisiala Muhammadu Buhari ụbọchị Tọọzde n'obi gọọmenti dị n'Abuja.
 Dịka onye nnyemaka na okwu gbasara soshal midia nke onye isiala siri kwụpụta n'igwe Twitter, onyeisiala mba abụọ ahụ nwere mkparịtaụka n'okwu gbasara mmekọịta mba abụọ ahụ dịka o siri gbasa nchekwa na akụnaụba.
 A họpụtala Chiji Collins dịka onyeisi ụlọomeiwu Imo steeti
-Ndịomeiwu ọhụrụ na steeti Imo ahoputala Maazi Chiji Collins dịka olu na-ekwuru ha.Nwa amadi a, bụ onye na-anọchite anya okpuruọchịchị Isiala Mbano nke steeti ahụ.
-A họpụtara ya na-enweghị onye mara ya aka n'ihu.Nke a bụ nke ugboro abụọ ọ na-aga n'ụlọomeiwu ahụ dịka ahọpụtachara ya nke mbụ n'afọ 2015.
+Ndịomeiwu ọhụrụ na steeti Imo ahoputala Maazi Chiji Collins dịka olu na-ekwuru ha.
+Nwa amadi a, bụ onye na-anọchite anya okpuruọchịchị Isiala Mbano nke steeti ahụ.
+A họpụtara ya na-enweghị onye mara ya aka n'ihu.
+Nke a bụ nke ugboro abụọ ọ na-aga n'ụlọomeiwu ahụ dịka ahọpụtachara ya nke mbụ n'afọ 2015.
 Uloomeiwu a họpụtakwara Okechukwu Onyekanma, bụ onye na-anọchite anya Mbaitoli nke steeti ahụ dịka osote ya.
 Onye ọchịehi ebepụla isi nwaagbọghọ n'Ekiti
 Obodo Ilasa Ekiti dị n'Ekiti Steeti nọ n'ọgbaghara ugbua n'ihi ọnwụ otu nwaagbọghọ onye ọchịehi bepuru isi maka na ọ jụrụ ịlụ ya.
@@ -978,8 +980,7 @@ onyeeze ahụ nọ na ugbo ya mgbe ndị ntọ ahụ jị ọgbatumtum bịa ọ
 N'ofesi
 Ụnụ anụla nee na onyeisiala mba Mexico bụ Andres Obrador ekwusiela ike na ya ga- ere ụgbọelu onyeisiala were buo agha gbasara ndị obodo ya ịgbafe mba Amerika n'nzuzo.
 Obrador sị na ya ga na-agbazị ụgbọelu ọha iji hụ na ya mejuputara nkwa ya kwere maka nha mba America chọrọ ịda ndị be ha.
-N'egwuregwu
-Enyimba FC nwetara ihe nrite dịka 'otu kachasị agba' na mpaghara Afrịka n'afọ 2003
+N'egwuregwu, Enyimba FC nwetara ihe nrite dịka 'otu kachasị agba' na mpaghara Afrịka n'afọ 2003
 N'egwuruegwu, Enyimba eburula iko Nigeria Premier league nke ụgbọrọ asatọ ha site n' iji ọkpụ goolo atọ meri Akwa United ụnyaahụ.
 Enyimba ji akara iri na abụọ n'egwuregwu ise ha gbara, ebe Reuben Bala, Stanley Dimgba na Abdulrahman Bashir nyeere Enyimba goolu.
 Gee akụkọ ndị a ebe a:
@@ -1620,7 +1621,7 @@ O kwuru na akwụkwọ na-enye ikike ibi na Ghana bụ 'resident permit' abụgh
 Resident permit ahụ na-ericha 200,000, mana inweta ya abụghị ebe o biri.
 Obiora na onwe ya sị na ihe na-agba anyammiri bụ na iwu Ghana hibere bụ na ndị mba ọzọ agaghị azụ ahịa n'ime ahịa.
 Ndị nwere akwụkwọ zuru ezu agaghị aganwu n'ime ahịa zụọ ahịa, ọ bụ naanị n'okporoụzọ ka ha ga-enwe ụlọahịa, dịka iwu a siri kwuo.
-Dịka o si kwuo, ọ bụrụ na ndị Ghana gaa n'ihu sobe iwu a, ọtụtụ ụmụafọ na mba ahụ ga-ala makana ha agaghị emenwu ihe dị na ya.5ttt5/----------:-----
+Dịka o si kwuo, ọ bụrụ na ndị Ghana gaa n'ihu sobe iwu a, ọtụtụ ụmụafọ na mba ahụ ga-ala makana ha agaghị emenwu ihe dị na ya.
 Victor Moses dị afọ 27 alaala ezumike nka n'egwuregwu bọọlụ Naijiria
 Victor Moses ka ga na-agbara Chelsea bọọlụ maọbụ klụb ọzọ n'ọdiniihu, mana ọ gaghị agbara Naịjirịa.
 Victor Moses
@@ -1662,8 +1663,8 @@ Nwaafọ Igbo na-azọ ọkwa ọchịchị Naịjirịa bụ Kingsley Moghalụ
 O kwuru na oge eruola mgbe a ga-akwụsị ịtụkwasị obi n'elu mmanụ agbịdị.	 	 
 Nwoke ọbụla gbara afọ 40 wee gbagobe, kwesịrị ịga nyochaa Prostate ya	 	 
 Ndị mmadụ emela ngagharị iwe megide ọrịa Prostate Cancer n'Okpara square Enugwu.	 	 
-Ọtụtụ ndị mmadụ agbakọtala ọnụ n'okpra square dị n'Enugwu iji mee ngagharị iwe megide ọrịa Prostate Cancer.	 	 
-Proatate Cancer bụ ajọ ọrịa na-adị n'akpa mamịrị ụmụ nwoke, nke na ọtụtụ mmadụ anwụọla na ya.	 	 
+Ọtụtụ ndị mmadụ agbakọtala ọnụ n'okpra square dị n'Enugwu iji mee ngagharị iwe megide ọrịa Prostate Cancer.
+Prostate Cancer bụ ajọ ọrịa na-adị n'akpa mamịrị ụmụ nwoke, nke na ọtụtụ mmadụ anwụọla na ya.	 	 
 Onye chikọbara ngagharị iwe otu pink blue'ahụ bụ mazị Roncy Chidebe kwuru na ya na ndị otu ya chọrọ ka ụmụ nwoke niile tetanụ ụra, gaa nyochaa onwe ha.
 Canada etinyela iwu ga-eme ka ọ siere ndị Naịjirịa ike ịga mba ahụ
 Ndị ọkaikpe na-amara gọọmentị ha aka maka ajọ agwa ha sị na ha a na-akpaso ndị Naịjirịa gbagara ọsọ ndụ na Canada.
@@ -1727,25 +1728,20 @@ Lee ka e si eri ji ọhụrụ n'Alaigbo
 Ebuka n'uwe ya esunyela ọkụ na soshal midia ọzọ
 Akụkọ kachasị mkpa taa: CAF amapụla ndị ọgba bọọlụ abụọ
 Amapụla ndị ọgba bọọlụ Naịjirịa abụọ dịka e mechara nyocha afọ ha dị ebe onyeisiala Buhari na ndị Naịjirịa bi China nwere nzụkọ.
-N'egwuregwu,
-Ngalaba na-ahụ maka egwuregwu bọolụ na Africa amapụla ndị ọgbabọọlụ Naịjirịa abụọ n'isonye n'asọmpị nke U-17 a ga agba na Niamey maka afọ ha dị karịrị iri na asaa.
+N'egwuregwu, Ngalaba na-ahụ maka egwuregwu bọolụ na Africa amapụla ndị ọgbabọọlụ Naịjirịa abụọ n'isonye n'asọmpị nke U-17 a ga agba na Niamey maka afọ ha dị karịrị iri na asaa.
 Naijiria na BurkinaFaso ga-asọmpị echi n'elekere anọ iji mata onye ga-etozu ị ga asọmpị AFCON.
 Na Delta steeti taa,
 Otu mmadụ anwụọla mmadụ anọ meruru ahụ ebe ụfọdụ ka tọrọ n'okpuru ụlọụka dasara ndị mmadụ ebe ha na-aka ụka ụtụtụ na Deta steeti.
 Onyeisi ụlọomeiwu ukwu Bukola Sararki ekwuola na ya ga-enyeaka chọpụta ma gwọọ ndị pụtara n'ihe a.
-Ọzọ,
-Onyeisiala Muhammadu Buhari na ndị Naịjirịa na mba China enweela nzụkọ na mkparịta ụka ụnya ahụ dịka ọ gara mba ahụ.
+Ọzọ, Onyeisiala Muhammadu Buhari na ndị Naịjirịa na mba China enweela nzụkọ na mkparịta ụka ụnya ahụ dịka ọ gara mba ahụ.
 Na nzụkọ ahụ o kwuru na ụjọ anaghị atụ ya gbasara ntuliaka kwụọtọ na 2019 maka na ọ bụ ihe oji banye ọchịchị .
-Na mba ofesi,
-Ihe karịrị mmadụ puku iri emela ngagharị iwe n'ihi oge ezumike nka na mba Rọshịa.
+Na mba ofesi, Ihe karịrị mmadụ puku iri emela ngagharị iwe n'ihi oge ezumike nka na mba Rọshịa.
 Gọọmentị mba ahụ na-akwado ịme oge ezumike nka afọ iri isii n'atọ maka ụmụnwaanyị na afọ iri iss n'ise maka ụmụnwoke.
-N'ụtụtụ
-AMVCA kpọpụtara ndị ụlọ fiim ụnyaahụ
+N'ụtụtụ, AMVCA kpọpụtara ndị ụlọ fiim ụnyaahụ
 Ndị ihe nkiri si Naijirịa na mba ndị ọzọ n'Afrịka gbakọrọ na Legọs unyaahụ maka emume akpọrọ Africa Magic Viewers Choice Awards.
 Emume nke afọ a bụ nke isii kemgbe ebidoro ịtụ ndị ihe nkiri ugo site na atụmatụ a.
 Ndi ihe nkiri zuru ka emee na ya bụ emume ebe ndị tụrụ ugo dika Adekola Odunlade, Omotola Jolade, Nyce Wanueri na ndị ọzọ.
 Aka m adịghị ya!
-- Rotimi Amaechi
 Rotimi Amaechi bụ onye chiburu Rivers steet kwuru na ọbụghị eziokwu na ọ họpụtara onye ga-azọ ọkwa gọvanọ n'APC n'ime Rivers Steeti.
 Akụkọ na-ekwu na ọ họpụtara Tonye Cole bụ onye ojiegoachọego ama ama, mana Amaechi kwuru na ọ bụ ndị iro na-ekesa akụkọ a.
 Boko Haram egbughi ndị otu anyị -Naịagha Naịjirịa
@@ -1982,7 +1978,6 @@ Dịka ọ fọrọ sọsọ ụbọchị isii tupu e mee ntuliaka, ọkụ rep�
 Otu ụlọ ebe a na-akwado ime ntuliaka alaala n'ọkụ gbara ya taa.
 Dịka akụkọ siri kwuo, ọkụ ahụ repịara ihe niile dị n'ime ụlọ ahụ gụnyere akpati akwụkwọ vootu nakwa akwụkwọ vootu dị icheiche.
 Onye ọnụ na-eru n'okwu kwuru na ihe a awụnyela aja na nkwado ntuliaka mana o rubeghi ịme nyocha gbasara ịrụka ntuliaka na abịa.
-Maka Leah Sharibu:
 Nne Leah Sharibu bụ otu nwa agbọghọ ka tọrọ n'aka ndị Boko Haram ka ha wakpochara obodo Dapchi n'afo gara aga, ezigarala gọọmentị ozi ka ha mezuo nkwa ha kwere ịnapụtara ya nwa ya.
 Ọ gwara ndị ntaakụkọ n'Abụja na nwa ya ka nọ n'aka ndị oji isi aghọ mgbọ a makana o kweghị esonye ha n'ofufe ha.
 N'akụkọ si mba ofesi,
@@ -2069,8 +2064,7 @@ N'Anambra,
 Onyeisioche ụlọ ebe a na-agbapụta mmanụ ụgbọala bụ Patrick Okeke kwuru na o nweghị onye nwụrụ n'ọkụ a gbaranụ.
 Nke a na-eme ka akụkọ pụtachara abali abụọ gara aga na mmadụ asaa nwụrụ n'ọkụọgbụgba tanka mere n'Awka.
 Ndị otu ndọrọndọrọ ọchịchị Demokrats na Repọblikan na mba Amerika ekwekọrịtala iwepụta ego a ga-eji rụ agada jikọtara ha na mba ndị ọzọ ka ha gbochie mmechi gọọmenti mba Amerịka nke ọzọ.
-N'Egwuregwu
-Onye otu egqwuregwu Arsenal ama ama bụ Aaron Ramsey ebinyela aka n'akwụkwọ n'ọrụ ngo ruru pounds narị anọ kwa izu ụka maka ịbanye otu egwuregwu Juventus.
+N'Egwuregwu, onye otu egqwuregwu Arsenal ama ama bụ Aaron Ramsey ebinyela aka n'akwụkwọ n'ọrụ ngo ruru pounds narị anọ kwa izu ụka maka ịbanye otu egwuregwu Juventus.
 Ọ nọọla ruo afọ iri na otu n'otu egwuregwu Arsenal.
 Nkeji Taa
 Ihe nkiri taa
@@ -2158,15 +2152,12 @@ Ejidele ndị ọrọ gọmenti asị na ha n'ezu ọgwụ
 Yoweri Museveni, Onyeisiala mba Uganda
 Ụnụ ahụlanoo na nkịta atala ọkpụkpụ anyanere ya n'onu n'Uganda.
 BBC African Eye amaala imi n'ala chọpụta ka ndị ọrụ ahụike mba ahụ sị ezu ọgwụ gọmenti eresi ndị ahịa.
-Gee nkeji
-Ihe nkiri
 Akụkọ ga-amasị gị:
 Gịnị ka ụbọchị emume ndị nna pụtara gi?
 Ndị nso kpụ Lionel Messi n'ọnụ maka ọdịda ha na COPA America 2019
 208bn Naira nke TETFund abụghị ego ASUU na-ana gọọmenti' - Ogunyemi
 World Cup 2019: Etu Naịjirịa si agbanwe etu esi ahụ bọọlụ ụmụnwaanyị
 Naịjirịa e nwereike ịgbanwe echiche ndị mmadụ gbasara etu ha si ahụ ụmụnwaanyị so n'egwuregwu bọọlụ?
-Falcon
 Ịsonye n'egwuregwu iko mbaụwa ụmụnwaanyị karịrị nanị igba bọọlụ n'anya ndị gbara Naịjirịa.
 Otu egwuregwu bọọlụ ụmụnwaanyị nke Naịjirịa bụ naanị otu egwuregwu tozuru ịsonye n'asọmpị iko mbaụwa kamgbe afọ 1991 mana ha ka na-agabiga ọtụtụ ihe mgbochi.
 Super Falcons amaburula Iko AWCON 2018 n'ike
@@ -2281,8 +2272,6 @@ Ebe Muslim brotherhood nakwa na ndị ọzọ na-ekwu na gọmentị ma ihe mere
 France emeriela Naịjirịa n'iko mbaụwa ụmụnwaanyi
 N'egwuruegwu, asompi iko mbaụwa ụmụnwaanyị, France ji otu goolu merie Naịjirịa ụnyahụ.
 Na penariti agbagharịrị nke ugboro abụọ , ka ha ji nwete ya bụ mmeri.
-Nkeji
-Akụkọ ga-amasị gi
 Ndị nkuzi Abịa alaghachila ọrụ
 Ndụmọdụ Peter Obi nyere Onyeisiala Buhari
 Etu Naịjirịa si agbanwe etu esi ahụ bọọlụ ụmụnwaanyị
@@ -2294,26 +2283,6 @@ Steeti ruru iri abụọ na otu na Naịjirịa ka ụlọọrụ 'Common Wealth
 Ụlọọrụ ahụ depụtara ozi ahụ n'elu webụsiati ha ma kwụkwa na arụrụala ndị oyiegwu agbalitela n'ugwu Hausa Naịjirịa, ekperima na ọdịda anyanwu, nakwa ikpaike na Naija Delta.
 Boko Haram sị ka akwụọ N100m n'isi Abraham Amuta
 Ị chetara mgbe ndị ntọ atọrọla otu onye ntaakụkọ
-State ndị ha gụnyere bụ agaaga ugbua bụ:
-Borno
-Yobe
-Adamawa
-Gombe
-Delta
-Rivers
-Akwa Ibom
-Cross River
-Kilio mita iri abụọ n'oke Niger na Zamfara
-Bauchi
-Zamfara
-Kano
-Jigawa
-Katsina
-Kogi
-kilo mita iri abụọ kewara Niger dị na Sokoto nakwa Kebbi
-Bayelsa
-Abia
-Kaduna
 N'ime ndụmọdụ a, ha gwakwara ndị mba UK nọ Naịjirịa ha agala ebe ndị mmadụ gbakọjuru, ọgbakọ ebe a na-ekpe ekpere , ụlọ ahịa, ụlọ oriri na nkwari, ebe a na-agba ụgbọala nakwa ogige ebe ndị na-agba ọsọ ndụ bi.
 Ha kwuru na oke ntọ na-eme na steeti ndị ahụ na-abụkarị maka ego maọbụ ndọrọndọrọ ọchịchị.
 N'ọnụ ha, 'ị ga-ebe ndị a bụ agaaga ,gba mbọ hụ na ị kpọ ndị nchekwa zuruoke.'
@@ -2368,7 +2337,8 @@ Simone Biles
 Simone kwuru na ọ gaghị ekwe ka ihe mere zuru oọṅụ ya
 Simone kwupụtara nke a n'elu igwe okwu, Twitta, jiri akụkọ a na-akpọ #MeToo na bekee.
 Ọ sị na ọ gaghị ekwe ka ihe mere 'zuru ọṅụ m na obi aṅụrị m.'
-O kwuru sị: 'Ọ hịara m ahụ ị cheta ihe ndị a, ma na-agbawa m obi na ịlaghachi azụ ebe ahụ o mere dị mkpa na imezu ebumnobi m maka ị ga asọmpị Tokyo n'afọ 2020.'
+O kwuru sị: 'Ọ hịara m ahụ ị cheta ihe ndị a, ma na-agbawa m obi na ịlaghachi azụ ebe ahụ. 
+Ọ dị mkpa na imezu ebumnobi m maka ị ga asọmpị Tokyo n'afọ 2020.'
 Mana Simone gwakwara ndị n'eso ya na ọ gaghị eme ha ihe nwute, na ọ ga-aga n'iru n'imeri na ihe ọ hụrụ n'anya bụ egwuregwu mmega ahụ.
 Gịnị bụtere okwu a?
 Ndị uwe ojii wakporo, Larry Nassar, onye bụ dokịta ochie na-eleta ndị otu egwuregwu Amerika niile na Disemba afọ gara aga maka mpụ gbasara ụmụaka n'ịhe mmekọrịta nwoke na nwanyị.
@@ -9999,3 +9969,32 @@ Anyị kwesiri ikpere ya ekpere, ma rịọ Chineke ka ọ gbaghara anyị niile
 Ndịiche dị n'okpukpe a bụ ihe mgbochi n'etiti Aisha na ndị mụrụ ya?
 Salami kwuru na okpukpe enweghị ike ịbụ nsogbu nke esemokwu.
 Nke a megidere ozi gbasara na soshal midia.
+Ugbua: ndi DSS atoghapula Sowore ka mkpuru ubochi otu nari ,iri abuo na ise gachalu akpuolu esi uzo ezighi ezi nwere kpuru ya
+Ndi Right Activist na Pro-democracy campaigner, bu Omoyele Sowore aburugo onye nwere onwe ya, kemgbe onwa ato ngalaba nchekwa nwuchikolo ya na Legosu
+Nigerian Government, nwuchiri Sowore, kpuru ya ga uloikpe maka Ngaghari Iwe o na-akwado nke o kporo#Revolution Now
+Ha toghapuru ya na uchichi Tozde ka uloikpe ukwu nyere iwu na ntuziaka ka atoghapu ya
+Sowore bu onye aturu anya ga-abia n'uloikpe ubochi Fride maka mmalite ikpe ya
+Ndi otu Nigerian government na aha bekee na- ebo Sowore ebubo na o na-akocha onyeisi ala bu Muhammadu Buhari, n'akpa nkata maka ichupu ya n' okwa ochichi ya
+Ugbua: Falana nwelu ikpe nwa akwukwo nke achupuru na Mahadum FUNAAB bu nke na-enwuzi na ihu akwukwo by Facebook na asusu bekee
+Falana kwuputara nke a, ebe enwere ogbako ndi nkuzi n legosu , ubochi Tozde
+Femi Falana- Onye nlekota Okaikpe bu Femi Falana ekwuola na ya ga - enwere okwu Ifemosu Adewale, nwata akwukwo mahadum Federal university of Agriculture nke di n'Abeokute, steeti Ogun, onye nke achupuru na ulo akwukwo maka ihe etinyele ya na Facebook
+Falana kwuputara nke a na ogbako ndi nkuzi nwere na legosu n'ubochi Tozde .
+Ọ sịrị na ya na Adewale ekwekoritago na-aga enwepu okwa ahu na uloikpe
+O kwuru si:  otu Nwokolobia zutere m ugbua, na ya choro Inwepu ulo akwukwo ya uloikpe
+FUNAAB Achupuru nwa akwukwo ha, n'ihi ozi E zigara ndi otu IGP,Alliance na Sowore
+Ó dere na-akwukwo ozi gbasara ndi ohi na FUNAAB na ndi isi ulo akwukwo , nwere nwute ma chupu ya
+A gwara m ya ka o biakwute m ubochi Tozde
+Anyi ga-enwere okwu a ga n'uloikpe
+Ndi nlekota FUNAAB achuola Adewale, n'ihi ihe akoro maka ya n'ihu akwukwo by Facebook,nwere Mee umu akwukwo ahu akpuolu akaja
+Ozokwa na-ékwu maka , e nweghi ezigbo okporo uzo n'ime ulo akwukwo
+Akwụkwọ iwu ahụ kwukwara na kọmịshọn nwere ikike imenwo ma megharịa Mkpebi ahụ oge ọbụla, ma lelekwaa ohere ndị ọzọ iji wulie ụlọ ọrụ akpọm oku, ma ọbụghị ụlọ ozi.
+Ọ gara n'ihu kwuo na ụdị nnyochagharị bụ nke oke mgbanwe n'ọnọdụ ahịa na ụzọ ọrụ nke Mkpebi ahụ
+na mmebe Mkpebi nke a, emere ka a mata na ụlọakụ edeela akwụkwọ gara ndị NCC maka akara USSD nke eji akwụ ụgwọ site n'ekwentị, ebe enyere ha ikike ugbua nyere Mobile Network Operators (MNOs) nke nọọrọ onwe ya.
+Etu ọ dị, akaụntụ ALTON etu esi eji USSD site n'aka ndị ụlọakụ malitere na nkwado nke kọmịshọn n'inye ndị ụlọakụ ikike iji USSD wee kwalite ntinye ego dijital na-egosi n'akwụkwọ nke Guardian nwetara.
+Site n'aka ALTON, ebe ozi ọkpụkpọ oku ekwentị na arụrarụ bụ na-eruzi aka n'ala a, ndị ụlọakụ gosipụtara ọwara USSD dịka ụzọ dị ọnụ ala eji ezije ozi ego nye ndị ahịa ha.
+ndị ụlọakụ dere akwụkwọ ma nweta mkpụmkpụ akara USSD maka izije ozi ego nye ndị ahịa ụlọakụ site n'aka ndị Nigerian Communication Commission (the Commission).
+N'oge mbilite nke mwuli USSD maka ngalaba ozi izije ego, ụzọ ịkwụ ụgwọ nke ndị otu anyị nabatara bụ ịna ndị ahịa telecommunication ozi n'aka ha, nke ana akpọ ịkwụ ụgwọ ngwụcha-onye ọrụ.
+Ụlọ akwụkwọ ndụ meriri n'egwuregwu ọwara ebe Ụlọ akwa ọcha meriri n'egwuregwu bọọlụ ụkwụ
+Etu ọ dị, site na mkpesa sitere n'aka ndị ahịa ya maka iwepụ ike oku ha n'ụzọ ezighị ezi, ALTON sịrị na ha na ndị ụlọakụ  nwere nkwekọrịta ịnara ego ọrụ nke dịnyeere inwere USSD maka ozi ego 
+egwu kalịstenis na ife aka mere ka emume ahụ dị ụtọ
+Dịka ọ si dị na leta sitere n'ụlọ ọrụ, nke nwere akara ụbọchị iri abụọ na asatọ nke ọnwa Ọktoba n'afọ 2019 ma bụrụ nke edegaara Mịnịsta Pantami ma nwee mbinye aka site n'aka Onyeisi ALTON  na Ode akwụkwọ Ukwu, Gbenya Adebayo na Kazeem Lapedo
