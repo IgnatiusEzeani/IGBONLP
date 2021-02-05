@@ -7,10 +7,11 @@ N'otu aka ahụ, Onyeisi nke Otu ndị Ụlọ ọrụ akpọmoku ekwentị nke 
 Teniola kwuru na Gọọmentị Etiti kwesiri inye NCC ohere itinye iwu mkpebi ha mere, tụmadị ebe ọ metutara mwuli ụlọọrụ akpọmoku ekwentị
 N'ezie, nnyocha nke Guardian gosiri na enwere ikike iwu maka ndị NCC itinye aka ịchekwa ndị ahịa ozi telekọm (ya bụ, ndị ahịa ụlọakụ ndị na-eji USSD eme mgbazinye ego)
 Na gboo ọkpụrụkpụ okwu ya banyere 'Iwuli Ngalaba Ọdụ ụgbọ mmiri n'Ọnịcha; ebe dị mkpa, ọrụ dị oke mkpa na ụzọ ịga n'ihu,' Maazị Moghalu kwuru na ime njem bụ nke anapụghị ịgbanarị n'ụwa taa.
-emere emume ahụ na Katidral Ndị Nsọ niile 'All Saints Cathedral' dị n' Ọnịcha. N'okwu ya, ụzọ na-aga n'ihu nke iji lebanye ọtụtụ nsogbu anya kpebiri na ha gana arụ ọrụ iji rụzu ọrụ ọdụ ụgbọ mmiri ahụ
+emere emume ahụ na Katidral Ndị Nsọ niile 'All Saints Cathedral' dị n' Ọnịcha.
+N'okwu ya, ụzọ na-aga n'ihu nke iji lebanye ọtụtụ nsogbu anya kpebiri na ha gana arụ ọrụ iji rụzu ọrụ ọdụ ụgbọ mmiri ahụ
 Maazị Moghalu kwuru nkea mgbe ọ na-ekwu uche ya nye ndị nta akụkọ ka emechara nkuzi owuwo anya nke ndị ji ọkwa na mpaghara Ọwụwa anyanwụ Ndịda site n'aka NIWA.
 NCC bụkwa ndị enyere ọrụ ịhụ maka ikwalite ezigbo asọmụmpi n'ụlọọrụ ịkpọ oku na nchekwa ozi na  ndị na-eweta akụrụngwa n'iwehie ike ahịa ma ọbụ ịgba mgba megide asọmụmpi na omume adịghị mma site n'aka ndị ozi ma ọbụ ndị mweta akụrụngwa, na ọrụ nke ọrụ gburugburu nke Kọmishọn maka akụnaụba na nchịkwa akụrụngwa nke ụlọọrụ nzisa ozi 'Commission for economic and technical regulation'
-nye ọtụtụ ndị Naịjirịa, iji USSD bụụrụ ha ihe ọhụrụ, mana nnyocha sitere n'aka Guardian gosiri na amụma a dịrịị ire kamgbe afọ 2014.
+N'ebe ọtụtụ ndị Naịjirịa no, iji USSD bụụrụ ha ihe ọhụrụ, mana nnyocha sitere n'aka Guardian gosiri na amụma a dịrịị ire kamgbe afọ 2014.
 Amụma a, etu ọ dị, nwetara iri elu n'afọ a , mgbe ndị NCC nyere mkpesa Mkpebi maka ya.
 ozi mkpesa enwetara n'aka ọwa ozi ikuku  nke NCC akpọrọ Ụgwọ Mkpebi nke USSD 'Determination of USSD Pricing'  nke edere ụbọchị iri abụọ na atọ nke ọnwa Julaị afọ 2019 ma burukwa mbinye aka nke Osote Onyeisi Ukwu nke Kọmishọn ahụ, Ọkammụta 
 Umar Danbatta, gosipụtara na n'etiti ihe ndị ọzọ, na agba USSD bụ tịnkọm iri abụọ, ọnụ agba USSD bụ otu Naịra
@@ -117,7 +118,7 @@ o kwusiri ike na gọọmentị nke etiti ga-eweta gburugburu dị mma maka iche
 N'okwu ya, gọọmentị nke etiti kwesiri ịgba ndị omebe iwu ime obodo ume iji chekwa ndụ ndị mmadụ, ndị tinyere ha n'ọchịchị
 Gọọmentị ọbụla nke agaghị eme ihe kwesiri iji chekwa ndụ ndị ọ na-achị na akụnaụba kwesiri ichili aka elu, were ihe ọbụla Chukwu nyere gị rụọ ọrụ nke ndụ ebighi ebi
 Ebube agụmaakwụkwọ, mwuli akọnauche na ahụike nke anụ ahụ bụ ihe anyị na- elegara anya. Ebea, anyị na-ekwugide otu nzuzo ma ndị nche anyị nọ n'ọrụ oge niile. Onye ọbụla ejidere n'otu nzuzo ga-ata ahụhụ nke iwu kwadoro.
-BISHOP AMATU eliela nne ya dị afọ iri iteghete na isii; site n'aka Regina Igwebuike : https://www.
+BISHOP AMATU eliela nne ya dị afọ iri iteghete na isii; site n'aka Regina Igwebuike 
 N'ozi nnabata, Onye Nlekọta Ụlọakwụkwọ, Rev. Fr. Michael Adawai kwuru na ha na-eso ụzọ dị mma n'iwuli agụmaakwụkwọ ụmụaka, ma kwukwaa na ha anaghị anabata ihe ọbụla gbasara otu nzuzo.
 Ọ kelere ndị nlekọta Igwe Ụlọakwụkwọ nke St. Edmund maka isetipụ aka rue ịnara ndị Ụka Katọlik St. Alphonsus, nke Nkpọọ ama egwuregwu iji nabata ihe egwuregwu niile.
 Lady Lizzy Ewuzie, Onyeisi Agụmakwụkwọ Ebe 'Area Education Officer (AEO), nke Ugwu Idemili nọchiri anya kọmishọna n'emume ahụ
@@ -147,13 +148,8 @@ o kwenyere na ọ ka mma inwe ezigbo ọgụgụ isi tutu ije akwụkwọ nke be
 o biri ndụ ekpere, ozi onye achọghị naanị ọdị mma ya, na ọrụ ebere, mweda n'ala, ịrụsi ọrụ ike, ịkwudosike na ịke ọrụ. 
 ndụ ekpere ya na-efe efe nke mere na ị gaghị anọ ya nso hapụ inwe ndụ ekpere ahụ, ka o kwusiri ike
 Ndị nnukwu mmadụ bịara mmemme ahụ gunyere Archbishop Valerian Okeke nke Archdiocese Onitsha , Ndị Bishop nke Province Owerri, na aka chụburu steeti Anambra bụ Maazị Peter Obi 
-Onye bụrụla onyeisi INEC, Ọkammụta.
-Maurice Iwu, Kọmishọna nke ihe banyere ụmụ nwaanyị n'Anambra, Odoziakụ Ndidi Mezue, Ndị Eze ọdịnaala na ndị mmadụ nọ na mpaghara ndụ dị iche iche.
-(MOI)
-GỌỌMENTỊ ENYELA ALA NDỊGIDE NYE NGALABA ỤLỌIKPE MKPESA NKE DỊ N'ỌKA site n'aka John Ndu : https://www.
-steeti anambra.
-gov.
-NG/NEW?R-GỌỌMENTỊ ENYELA ALA NDỊGIDE NYE NGALABA ỤLỌIKPE MKPESA NKE DỊ N'ỌKA & hs=13580357517dbbd1867dbd0aabf071af.
+Onye bụrụla onyeisi INEC, Ọkammụta Maurice Iwu, Kọmishọna nke ihe banyere ụmụ nwaanyị n'Anambra, Odoziakụ Ndidi Mezue, Ndị Eze ọdịnaala na ndị mmadụ nọ na mpaghara ndụ dị iche iche.
+GỌỌMENTỊ ENYELA ALA NDỊGIDE NYE NGALABA ỤLỌIKPE MKPESA NKE DỊ N'ỌKA site n'aka John Ndu 
 Okwuosa kọwara na imirikiti ụlọ dị n'Ọka ochie bụ ndị arụrụ ọtụtụ afọ gara aga, ugbua, mere enweghị nhazi nke imirikiti ime obodo
 6, 2020 (MOI) Gọọmentị Steeti Anambra enyeela iberibe ala ndịgide ebe Ụlọikpe Etiti ga-arụ Ngalaba Ụlọikpe Mkpesa nke Ọka. 
 Gọv. Willie Obiano mara ọkwa a mgbe ọ na-anabata ndị Ọkaikpe na ndị ọrụ ụlọikpe, nke Onyeisi Ụlọikpe Mkpesa Ọka bụ Justice Zainab Bulkachuwa bụ onye ndu ha bịara n'ụlọ obibi nke gọvanọ n'Amọọbịa
@@ -175,18 +171,16 @@ Obiano guzobere kọmitii mmadụ ise maka ọrụ Ụlọikpe Mkpesa nke Dr. On
 o gwara gọvanọ ka ọ gba mbọ hụ na ewuliri ụlọ ewumewu ahụ ọsọọsọ, ka ọ wee dị ka Ụlọikpe Mkpesa ndị ọzọ dị n'ala anyị.
 Onyeisi Ikpe nke Anambra na Kọmishọna nke Ikpe, Dr. Uju Nwogu jara onyeisi ike n'ihi nkwado ya n'ịhụ na emume ahụ gara nke ọma
 Okwuosa kwara arịrị na ndị ọrụ iro bụ ndị na-enweta mwakpo oge niile ma na-enweta mmerụ ahụ n'oge ịrụ ọrụ ha, tụmadị na Nise, Okpuno na Ụmụawụlụ, kwusie nke a ike dịka ihe ịma aka n'ihu kacha njọ
-ỤLỌỌRỤ AHỤIKE NTA EKWUPỤTALA AGBA NKE MBỤ NKE NIPDS NKE AFỌ 2020 site n'aka Nnedinma C. Okeke: https://www.
-steeti Anambra
+ỤLỌỌRỤ AHỤIKE NTA EKWUPỤTALA AGBA NKE MBỤ NKE NIPDS NKE AFỌ 2020 site n'aka Nnedinma C. Okeke
 O kwukwara na ndị nhazi mmepe ga- ahụ maka njem nleta ebe ana arụ ọrụ iji hụ na ọrụ na-aga dịka etu esiri nye ntuziaka.
 ndị ọkachamara n'ụlọọrụ nrụpụta bụ ndị agwara ka ha tinye akara njirimara n'ihe eserese iji nwe azịza n'ihe mmebi ọbụla mere n'ụlọ ahụ
 Okwuosa mechara kọwaa na ACTDA ga-elebere ụlọ na nhazi mmepe, tinyekwara na mgbazi arụrarụ gunyere ọrụ akwụkwọ ebe ọ na-ewube ya ga-eweta usoro nlele, ngosi akaebe nke onwunwe na ike nke ọkaikpe.
 isii, 2020 (MOI) Ndị otu Mwube Ahụike Nta nke steeti Anambra 'Anambra State Primary Healthcare Development Agency (ASPHCDA)' n'ijikọ aka ndị ọrụ ọzọ amaala ọkwa agba nke mbụ n'afọ 2020 maka ụbọchị ịgba ọgwụ mgbochi 'National Immunization Plus Days (NIPDs) na steeti a. 
 Nnukwu ode akwụkwọ, ASPHCDA, Dr Chioma Ezenyimulu mara ọkwa a n'oge nzukọ State Social Mobilisation Committee (SSMC) nke emere n'ụlọọrụ ASPHCDA dị n'Ọka.
-o kwuru na emume ahụ bụ nke ana-emerị n'etiti ọnwa Maachị na Epụrel n'afọ gara aga gana adịzi n'ọnwa Febụwarị ugbua
-15 na Feb.
+o kwuru na emume ahụ bụ nke ana-emerị n'etiti ọnwa Maachị na Epụrel n'afọ gara aga gana adịzi
 ọdịdị nke onyoonyo ikuku enyela aka ịchọpụta ebe ndị nwere ike ibu nnukwu ụlọ, nke etiti na nke obere ma gunyekwa ebe mmepụta, ka o kwuru
 Mmemme mmalite nke NIPDs bụ nke aga emekọ ya na ndị dị ime, ụmụ ọhụrụ na izuụka ahụike ụmụaka 'Maternal, Newborn and Child Health Week (MNCHW)' n'ọnwa Febụwarị 
-iri na otu n'Ụlọ ahụike nke Nta, dị n'Akpo, okpuru ọchịchị nke Agụata
+n'Ụlọ ahụike nke Nta, dị n'Akpo, okpuru ọchịchị nke Agụata
 Usoro ụlọ nke ọkaibe ka mma karịa usoro arụrarụ n'ihi na ọ mechara nwee arụrarụ, ịchọ mma na usoro mmepe nke ụlọ ọbụla site n'ebumnobi nke ọdịniihu
 Dr. Ezenyimulu kwuru na emume ụbọchị anọ ahụ bụ nke aga eme na PHC niile, nke ọhanaeze, nke nkuzi, nke oziọma na ụlọ ọgwụ ndị mmadụ nwe na ụlọ akwụkwọ
 site n'ụlọ rue n'ụlọ, nke gunyere ụlọ ụka, ụlọ alakụba, ụlọ ahịa, eme ọgbakọ ime obodo, ọdụ ụgbọala na ebe ọbụla enwere ịhụ ụmụaka
@@ -197,4 +191,3 @@ o kwuru na atụmatụ ahụ dị nke isi ya bụ ikewa Anambra n'ibe zoonu at�
 Ọkachamara nke UNICEF Mgbasa ozi maka Mmepe  'Communication for Development' (C4D) , Maazị Felix Okocha toro ndị otu SSMC n'ihi mbọ ha ịgbasa ozi maka emume ndị ụlọ ọrụ ahụ iji hụ na ndị Anambra na-enwe ahụ ike 
 E toro m unu niile banyere ihe unu na-eme kamgbe ma na-arịọ ka unu gaa n'ihu iweta nkwado a ka ebumnobi ndị ụlọ ọrụ a bịa na mmezu
 Onye Mgbazi, ACTDA, Ven. Amaechi Okwuosa kwuru na ndị isi, n'okpuru ọchịchị gọvanọ bụ ndị nke enyere ikike iwepụta usoro ukwu nke Ọka, igbanwe isi obodo ka ọ bụrụ Dubai ma ọbụ Taiwan
-Onye nkuchite okwu nke Redio Naịjirịa, Maazị Chukwudi Chukwuenyem kwuru na ọ ga-emerube emume nke ekwentị n'ụlọ ọrụ ya iji mee ka mgbasa ozi owuwo anya nke ha bawanye.
