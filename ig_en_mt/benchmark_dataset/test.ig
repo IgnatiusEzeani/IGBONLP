@@ -128,7 +128,14 @@ ma  maa ha ọtụtụ ikpe n'ihu Ụlọikpe Elu nke Ikeja, nke Lagos maka
 ịda iwu nkwenye nnyefe na inye ọrụ iwu megidere na gburugburu ya.
 Kọmishọna ndị Uweojii nke steeti Lagos, Zubairu Muazu
 Vanguard
-Ụlọ ndị Uweojii nke steeti Lagos anwụchiela and jide Maazị Oluwaseun Akadiri, Maazị Tunde Olafimihan and Olufemi Samuel, ndị ọrụ Ụlọakụ Wema nke Naịjirịa Plc na Ụlọ ekpere nke Mba Ụwa n'ihe banyere nkwekọrịta nke nnyefe ha na ndị Ọrụụgbo nke Green Grace Market Nigeria Linited. Nnwụchi ahụ bụ nke emere mgbe ndị Ọrụugbo nke Green Grace bịakwutere ndị uweojii ma nye mkpesa megide ha n'Ụlọikpe Elu nke Ikeja Lagos maka imebi iwu nkwekọrịta nnyefe na inye ọrụ nke iwu anabataghị na gburugburu ya. Etu ọ dị, Maazị Oluwaseun na ndị ọzọ ana enyo enyo abụrụla ndị ahapụrụ ma na-eche ụbọchị aga anụ ikpe megidere Ụlọakụ nke Wema Naịjirịa Plc. Oriakụ Olubimpe, Maazị/Oriakụ Olusola Toheebah, Taidol, na ndị ọrụ ha.Oriakụ Siyanbola Olubimpe, onye nke Ụlọakụ Wema were n'ọrụ, na ngalaba nke Ijede Ikorodu n'ụlọọrụ nke  Maazị/Oriakụ Olusola Toheebah ghọghịrị ndị Ọrụugbo nke Green Grace Ltd site n'ikwu na ha na-abịa ịkwụnye ego n'ụlọọrụ ahụ. Ụlọọrụ, Transcon Integrated Business Limited bụ ndị so na wayo ahụ, site na nnwụchi ahụ, akaraozi nke ndị Ọrụugbo nke Green Grace bụ nke edebanyere n'Ụlọakụ nke Wema bụ nke agbanwere esighị na ntuziaka ndị Green Grace. Ndị nlekọta nke Green Grace Farmers na-ebo ndị Transcon IntegratedBusiness Limited ebubo igwu wayo n'aha ndị Ụlọahịa Green Grace Ltd , site n'iji isi leta ndị ụlọọrụ Green Grace. Ikpe a abụrụla nke ebugharịrị rue ụbọchị iri na abụọ nke ọnwa Disemba.
+Ụlọ ndị Uweojii nke steeti Lagos anwụchiela and jide Maazị Oluwaseun Akadiri, Maazị Tunde Olafimihan and Olufemi Samuel, ndị ọrụ Ụlọakụ Wema nke Naịjirịa Plc na Ụlọ ekpere nke Mba Ụwa n'ihe banyere nkwekọrịta nke nnyefe ha na ndị Ọrụụgbo nke Green Grace Market Nigeria Limited. 
+Nnwụchi ahụ bụ nke emere mgbe ndị Ọrụugbo nke Green Grace bịakwutere ndị uweojii ma nye mkpesa megide ha n'Ụlọikpe Elu nke Ikeja Lagos maka imebi iwu nkwekọrịta nnyefe na inye ọrụ nke iwu anabataghị na gburugburu ya.
+Etu ọ dị, Maazị Oluwaseun na ndị ọzọ ana enyo enyo abụrụla ndị ahapụrụ ma na-eche ụbọchị aga anụ ikpe megidere Ụlọakụ nke Wema Naịjirịa Plc. Oriakụ Olubimpe, Maazị/Oriakụ Olusola Toheebah, Taidol, na ndị ọrụ ha.
+Oriakụ Siyanbola Olubimpe, onye nke Ụlọakụ Wema were n'ọrụ, na ngalaba nke Ijede Ikorodu n'ụlọọrụ nke  Maazị/Oriakụ Olusola Toheebah ghọghịrị ndị Ọrụugbo nke Green Grace Ltd site n'ikwu na ha na-abịa ịkwụnye ego n'ụlọọrụ ahụ.
+Ụlọọrụ, Transcon Integrated Business Limited bụ ndị so na wayo ahụ.
+Site na nnwụchi ahụ, akaraozi nke ndị Ọrụugbo nke Green Grace bụ nke edebanyere n'Ụlọakụ nke Wema bụ nke agbanwere esighị na ntuziaka ndị Green Grace.
+Ndị nlekọta nke Green Grace Farmers na-ebo ndị Transcon IntegratedBusiness Limited ebubo igwu wayo n'aha ndị Ụlọahịa Green Grace Ltd , site n'iji isi leta ndị ụlọọrụ Green Grace.
+Ikpe a abụrụla nke ebugharịrị rue ụbọchị iri na abụọ nke ọnwa Disemba.
 Onye nlele ule nke Politeknnic enwetala ije mkpọrọ afọ iri abụọ maka ohi ule
 Inye ikpe, Ọkaikpe Abdulmalik, kwuru na ndị ikpe mara ga-eje mkpọrọ afọ anọ na ikpe ọbụla mara ha nke mere ya na mgbakọ afọ iri abụọ na mkpọrọ.
 Olanrewaju Kayode, onye nlele ule mbịachara nke Politeknnic nke Ibadan enwetala ije mkpọrọ afọ iri abụọ maka ohi ule
@@ -141,34 +148,72 @@ Onyeisi ala Buharị, gọvanọ atọ ndị Ugwu fepụrụ jee ala Saudi Arabi
 Emume ahụ bụ kwesiri ịdị malite n'ụbọchị nke iri abụọ na iteghete nke ọnwa Ọktoba rue ụbọchị nke iri atọ na otu, ga-ahụ 
 Buharị sonyere na mkparịtaụka nke "Gịnị Ọzọ nye Azụmahịa Mbaụwa?
 Isiokwu emume ahụ
-Onyeisi Muhammadu Buhari ga-esi Naịjirịa jee Saudi Arabia n'ụbọchị taa maka ezumezu agba nke atọ nke Aro Nchekwa Ọdịnịihu 'Future Investement Initiative' nke Saudi Arabia Investment Fund na-achịkọba. Garba Shehu, onyeisi nnokete onyeisi ala kwuru nke a n'ụbọchị Sọnde. Ihe emereme ahụ ga-adị site n'ụbọchị nke iri abụọ na iteghete n'ọnwa Ọktoba rue n'abalị nke iri atọ na otu, ga-ahụta Onyeisiala Buharị na nsonye mkparịtaụka n'isiokwu "Gịnị ọzọ banyere Ahụmahịa Mbaụwa?". Ihe emereme ụbọchị atọ ahụ bụ nke ndị nchịkọba Ụlọ Alakụba abụọ ga-ahazi, King Salman bin Abdulaziz nke Saudi Arabia ma Crown Prince Mohammed bin Salman bin Abdulaziz dịka onyeisi oche, osote premier, onyeisi nke Ụlọ nke Akụnaụba na Ihe banyere Mmepe na PIF. Ihe emereme ahụ gbadoro ụkwụ iji nchekwa nwee ohere otuto, nwee nnwogharị ma nsogbu nka na ụzụ na lebanye anya na nsogbu mba ụwa.  Ihe karịrị mmadụ puku anọ site n'ala ruru iri iteghete bụ ndị atụrụ anya ga-esonye n'ọgbakọ nke FII 2019, nke aga enwekwa ihe ọzụzụ iri na abụọ na isiokwu dị iche iche ndị gunyere; obodo mepere emepe, ike, ahụike, ihe nchọta, njegharị, nri, njem, egwuregwu, azụmahịa na ụmụ ntorobịa. Buharị bụ onye nke Gọvanọ Babagana Zulum nke steeti Borno, Govanọ Abubakar Bagudu nke steeti Kebbi  na Gọvanọ Aminu BelloMasari nke steeti Katsina ga-esonyere ya n'ọgbakọ ahụ. Ọzọkwa, ndị ga-esonyekwa ya bụ Mịnịsta nke steeti,  Ihe banyere mba ofesi, ZubairuDada, Mịnịsta nke Ụlọ mmepụta, Azụmahịa na Nchekwa, Niyi Adebayo,Mịnịsta nke steeti, Petroleum Resources, Timipre Sylva, Minister ofCommunications, Ibrahim Pantami, the National Security Adviser, MajorGeneral Babagana Monguno (retd), Daịretọ Jenaral, Ndị Amamụihe nke Ala 'NationalIntelligence Agency', Ambasadọ Ahmed Rufa’i Abubakar, na  Manejin Daịretọ nke Òtù, Nigerian National Petroleum Corporation (NNPC),Mele Kolo Kyari. Ọ bụrụ na emesịa ọgbakọ ahụ na Riyadh, Buhari ga-eje Makkah, nke ndị nnọkete ya ga-esonyere ya, iji merube emume Umrah( pilgrimage nke ọpekata mpe) tupu ọ laghachi Abuja.
+Onyeisi Muhammadu Buhari ga-esi Naịjirịa jee Saudi Arabia n'ụbọchị taa maka ezumezu agba nke atọ nke Aro Nchekwa Ọdịnịihu 'Future Investement Initiative' nke Saudi Arabia Investment Fund na-achịkọba.
+Garba Shehu, onyeisi nnokete onyeisi ala kwuru nke a n'ụbọchị Sọnde.
+Ihe emereme ahụ ga-adị site n'ụbọchị nke iri abụọ na iteghete n'ọnwa Ọktoba rue n'abalị nke iri atọ na otu, ga-ahụta Onyeisiala Buharị na nsonye mkparịtaụka n'isiokwu "Gịnị ọzọ banyere Ahụmahịa Mbaụwa?".
+Ihe emereme ụbọchị atọ ahụ bụ nke ndị nchịkọba Ụlọ Alakụba abụọ ga-ahazi, King Salman bin Abdulaziz nke Saudi Arabia ma Crown Prince Mohammed bin Salman bin Abdulaziz dịka onyeisi oche, osote premier, onyeisi nke Ụlọ nke Akụnaụba na Ihe banyere Mmepe na PIF.
+Ihe emereme ahụ gbadoro ụkwụ iji nchekwa nwee ohere otuto, nwee nnwogharị ma nsogbu nka na ụzụ na lebanye anya na nsogbu mba ụwa. 
+Ihe karịrị mmadụ puku anọ site n'ala ruru iri iteghete bụ ndị atụrụ anya ga-esonye n'ọgbakọ nke FII 2019, nke aga enwekwa ihe ọzụzụ iri na abụọ na isiokwu dị iche iche ndị gunyere; obodo mepere emepe, ike, ahụike, ihe nchọta, njegharị, nri, njem, egwuregwu, azụmahịa na ụmụ ntorobịa.
+Buharị bụ onye nke Gọvanọ Babagana Zulum nke steeti Borno, Govanọ Abubakar Bagudu nke steeti Kebbi  na Gọvanọ Aminu Bello Masari nke steeti Katsina ga-esonyere ya n'ọgbakọ ahụ.
+Ọzọkwa, ndị ga-esonyekwa ya bụ Mịnịsta nke steeti, Ihe banyere mba ofesi, ZubairuDada, Mịnịsta nke Ụlọ mmepụta, Azụmahịa na Nchekwa, Niyi Adebayo, Mịnịsta nke steeti, Petroleum Resources, Timipre Sylva, Minister ofCommunications, Ibrahim Pantami, the National Security Adviser, Major General Babagana Monguno (retd), Daịretọ Jenaral, Ndị Amamụihe nke Ala 'National Intelligence Agency', Ambasadọ Ahmed Rufa’i Abubakar, na  Manejin Daịretọ nke Òtù, Nigerian National Petroleum Corporation (NNPC),Mele Kolo Kyari. 
+Ọ bụrụ na emesịa ọgbakọ ahụ na Riyadh, Buhari ga-eje Makkah, nke ndị nnọkete ya ga-esonyere ya, iji merube emume Umrah( pilgrimage nke ọpekata mpe) tupu ọ laghachi Abuja.
 Dịka Onyeisi Buharị sonyeere PDP site n'aka Sonala Olumhense
 Nke bụ ezikokwu bụ na site na ndị nlekọta nke Buharị họpụtara, ọ chinyiela aka elu
 ihe nzobe ọbụla nke ibu agha megide mpụ ma ọbụ ịrụpụta ihe ọbụla. Ya
 Nhọpụta abụrụla ihe ịma aka n'ihu nye olileanya
 Sonala Olumhense rụkọrọ ọrụ
-N'etiti 1980, emetere m enyi otu onye agha ukwu Naịjirịa amaara dịka 'Akpị Ojii'. Ezigbo aha ya bụ Benjamin Adekunle, nwoke pere mpe onye nke nwere ugwu maka igbu ọtụtụ mmadụ n'oge agha. Akụkọ kọrọ etu o si emebi ma kposaa nhazi ndị agha na-ebuso ha agha, ma nwoke ndị ka ya n'ahụ ibu ka ọ na-emekwa ka ha nọrọ n'ihe mgbu ma kwaa ákwá
-Oge anyị hụrụ, abụ m onye ngụgharị nke 'Akwụkwọ ozi nke Izu' ụlọọrụ anyị dịkwa na Surulere ebe o bi. Site n'agbamume ihe ọṅụṅụ nke ọ na-ebute, ọ kparịtara ụka maka ndọrọndọrọ ọchịchị ma akwụkwọ n'ụlọ ya ọtụtụ awa.
-Akwụkwọ? O juru m anya  etu nwoke siri hụ akwụkwọ n'anya. Ọ nwere nnukwu ọba akwụkwọ abụọ, ị ga-ewere nke ọbụla ị chọrọ. N'otu mgbado ụkwụ, ị ga-ebinye aka maka ya ma weghachi ya tupu izuụka abụọ. N'ezie, etu o siri hụta ya, ọ bụrụ na ị gụọ ndị ahụ, ị kwesiri inweta ihe ọṅụṅụ ndị ahụ, iji nye aka ịza ajụjụ na ịghọta ebumobi dị na ya.
-Nke ahụ bụụrụ m ụlọakwụkwọ ọhụrụ: na onye agha amaara maka imenye mmadụ bụ onye na-ewuli onwe ya n'ọgụgụ isi na omenala. Asụsụ werewere Akpị Ojii dị omimi. kama ọ bụ nghọta ya na-agbagwoju m anya oge niile. Ụdị ihe ụba ahụ bụ nke aga enweta site n'ọzụzụ na njem, n'ezie, mana ọ dị n'akwụkwọ-ala ndị akọnauche ndị ọzọ-na ha nwekarịrị n'ike. Nkea nwere ike bụrụ usoro ọrụ ugbo dị n'uche ọgụụ na-emenwo onye ahụ n'oge niile n'ụzọ mmadụ ndị ọzọ agaghị ahụ.
+N'etiti 1980, emetere m enyi otu onye agha ukwu Naịjirịa amaara dịka 'Akpị Ojii'.
+Ezigbo aha ya bụ Benjamin Adekunle, nwoke pere mpe onye nke nwere ugwu maka igbu ọtụtụ mmadụ n'oge agha.
+Akụkọ kọrọ etu o si emebi ma kposaa nhazi ndị agha na-ebuso ha agha, ma nwoke ndị ka ya n'ahụ ibu ka ọ na-emekwa ka ha nọrọ n'ihe mgbu ma kwaa ákwá.
+Oge anyị hụrụ, abụ m onye ngụgharị nke 'Akwụkwọ ozi nke Izu' ụlọọrụ anyị dịkwa na Surulere ebe o bi.
+Site n'agbamume ihe ọṅụṅụ nke ọ na-ebute, ọ kparịtara ụka maka ndọrọndọrọ ọchịchị ma akwụkwọ n'ụlọ ya ọtụtụ awa.
+Akwụkwọ?
+O juru m anya  etu nwoke siri hụ akwụkwọ n'anya.
+Ọ nwere nnukwu ọba akwụkwọ abụọ, ị ga-ewere nke ọbụla ị chọrọ.
+N'otu mgbado ụkwụ, ị ga-ebinye aka maka ya ma weghachi ya tupu izuụka abụọ.
+N'ezie, etu o siri hụta ya, ọ bụrụ na ị gụọ ndị ahụ, ị kwesiri inweta ihe ọṅụṅụ ndị ahụ, iji nye aka ịza ajụjụ na ịghọta ebumobi dị na ya.
+Nke ahụ bụụrụ m ụlọakwụkwọ ọhụrụ: na onye agha amaara maka imenye mmadụ bụ onye na-ewuli onwe ya n'ọgụgụ isi na omenala.
+Black Scorpion nwere nkwuwa okwu dị omimi.
+Kama ọ bụ nghọta ya na-agbagwoju m anya oge niile.
+Ụdị ihe ụba ahụ bụ nke aga enweta site n'ọzụzụ na njem, n'ezie, mana ọ dị n'akwụkwọ-ala ndị akọnauche ndị ọzọ-na ha nwekarịrị n'ike.
+Nkea nwere ike bụrụ usoro ọrụ ugbo dị n'uche ọgụụ na-emenwo onye ahụ n'oge niile n'ụzọ mmadụ ndị ọzọ agaghị ahụ.
 Nkea bụ ihe bịara m n'uche n'izuụka gara aga mgbe m gụrụ aha ndị nlekọta nke Onyeisi Muhammadu Buahrị họpụtara ma zigara ndị omebeiwu
 Amaghị m ụbọchị ikpeazụ Buharị gụrụrịị akwụkwọ ma ọbụ akwụkwọ mgbasa ozi ma ọbụ akwụkwọ ngosi ma ọbụkwarị ma ọ gụọla akwụkwọ ọbụla kamgbe ma ọbụ akwụkwọ mgbasa ozi ma ọbụ akwụkwọ ngosi
-Inye mkpesa nzuzo banyere ahụike ya, amaghị m ụbọchị ikpeazụ Bụharị nụrụ ihe ọbụla. Ọ bụghị ịnụ ihe ndị mmadụ na-ekwu n'okporoụzọ, n'igwe redio ma ọbụ n'onyoonyo, mana n'ịhụ ihe nkịtị nke mmadụ: ikuku ụda ibanye mmadụ n'ime ntị. Dịka nkọwa nke ụda. Maka na ọ bụrụ na Bụharị pụrụ ịgụ ma ọbụ nụ, ma ọbụ ha abụọ, enwere ihe nkebi n'etiti ike ahụ ya na nghọta ya, na nchepụta uche ya. Dịka etu esiri nwee nkebi n'etiti okwu ya na omume ya kamgbe afọ anọ
-Were nhọpụta nke ndị nlekọta ugbua mee ọmụmatụ. Ndepụta ahụ gunyere aha ọtụtụ ndị Naịjirịa amaghị, ọtụtụ bụ ndị amaara nke ọma, naanị olenaole bụ ndị akọwara dịka ndị maara ihe ekwe na-akụ. Ma imirikiti, dịka ọ dị n'akụkọ nwere ngosi, jupụtara na ndị ohi, ndị ohi nhọpụta mbinyeaka, mịnịsta ndị emeghị nke ọma na gọvanọ ndị chịburu emeghị nke ọma, ndị ohe steeti, ndị ohi etiti, na ndị ohi steeti na etiti kwụtịa  
-Ee, Buharị ahụ nke ṅụrụ iyi ikpochapụ mpụ, họpụtara ma ọbụ họpụtarịrị ha. Buharị ahụ onye nke kwuru na ọtụtụ n'ime ha emeghị nke ọma n'agba nke mbụ n'ihi na ha bụụrụ ya ndị ọbịa mgbe ọ họpụtara ha, onye nke o were ọnwa ise inweta mịnịsta ndị ọhụrụ, họpụtagharịrị ha.
+Inye mkpesa nzuzo banyere ahụike ya, amaghị m ụbọchị ikpeazụ Bụharị nụrụ ihe ọbụla.
+Ọ bụghị ịnụ ihe ndị mmadụ na-ekwu n'okporoụzọ, n'igwe redio ma ọbụ n'onyoonyo, mana n'ịhụ ihe nkịtị nke mmadụ: ikuku ụda ibanye mmadụ n'ime ntị.
+Dịka nkọwaputa nke ụda.
+Maka na ọ bụrụ na Bụharị pụrụ ịgụ ma ọbụ nụ, ma ọbụ ha abụọ, enwere ihe nkebi n'etiti ike ahụ ya na nghọta ya, na nchepụta uche ya.
+Dịka etu esiri nwee nkebi n'etiti okwu ya na omume ya kamgbe afọ anọ
+Were nhọpụta nke ndị nlekọta ugbua mee ọmụmatụ.
+Ndepụta ahụ gunyere aha ọtụtụ ndị Naịjirịa amaghị, ọtụtụ bụ ndị amaara nke ọma, naanị olenaole bụ ndị akọwara dịka ndị maara ihe ekwe na-akụ.
+Ma imirikiti, dịka ọ dị n'akụkọ nwere ngosi, jupụtara na ndị ohi, ndị ohi nhọpụta mbinyeaka, mịnịsta ndị emeghị nke ọma na gọvanọ ndị chịburu emeghị nke ọma, ndị ohe steeti, ndị ohi etiti, na ndị ohi steeti na etiti kwụtịa.
+Ee, Buharị ahụ nke ṅụrụ iyi ikpochapụ mpụ, họpụtara ma ọbụ họpụtarịrị ha.
+Buharị ahụ onye nke kwuru na ọtụtụ n'ime ha emeghị nke ọma n'agba nke mbụ n'ihi na ha bụụrụ ya ndị ọbịa mgbe ọ họpụtara ha, onye nke o were ọnwa ise inweta mịnịsta ndị ọhụrụ, họpụtagharịrị ha.
 Nkea mere, m ji kwuo n'afọ abụọ na ọkara gara aga, sị "Ọchịchị Buharị abụrụla ihe ọchị, na ike ime ihe dị mma na Naịjirịa abụrụla okwu efu"
-N'ime ọtụtụ izuụka tupu o mee nhọpụta, Buharị ahụ kwa nke ṅụrụla iyi ime ka ụwa mara na Naịjirịa dị mma, gwara ụwa na ọ ga-ahọpụta naanị ndị ọ maara. Nke na onye guzoworo  maka ọmụma nke naanị ezinaụlọ ya, ekwesighị. Ọ bụrụ na i riela uru ịbụ onye amaara maka ajọ ihe na mba ụwa, gịnị mere iji ewere igweokwu na-ekwusa akụkọ dịka onye mmebi? 
-N'okpuru nlekọta Buharị, mpụ esirila na ntakịrị ma bawanye. N'okpuru Buharị, otu patị All Progressive COngress (APC) abụrụla nke eji mpụ wee mara, etorughị eru na ụfụ obi. Ọ bụ otu patị ebe ndị nna ndọrọndọrọ na-enwe steeti ma na-eburu ego ndị mmadụ, dịka Bola Tinubu nke Lagos na Adams Oshiomhole nke Edo gosipụtaworo
-Oshiomhole ahụ kwa, nke bụ onyeisi oche ndị APC ugbua, kọwara nkwenye nke otu paatị ahụ n'oge ọgbakọ n'obodo Benin n'ọnwa Jenụwarị gara aga: Enweghị Naịjirịa ọbụla ma ọbụ ikpe ziri ezi, naanị ndọrọndọrọ. "Ee, ngwangwa ị banyere APC,  agbagharawo njọ gị niile," ka ọ mara n'ọkwa
-N'okpuru Buharị, akwụkwọ nkatọ nke ndị maara Buharị na-efu n'otu ntabianya, dịka n'okwu gọvanọ abụọ chiburula/ndị mịnịsta buuru ego steeti Lagos na Rivers. Oshiomhole n'onwe ya bụ nke akpụpụrụ ụlọikpe ma zaa ajụjụ ọnụ site n'aka ndị uweojii maka iri nnukwu ngarị n'ihi nhọpụta otu nke ime ụlọ
-N'okpuru Buharị, aga ejide gọvanọ n'onyoonyo ebe ọ na-ezunye akwụkwọ nde dọla n'uwe mwụda ya, dịka n'okwu gọvanọ steeti Kano, Abdullahi Ganduje, ma nwee ọṅụ n'obi isi ike ya kama ịta ahụhụ iwe ma ọbụ nnyocha. Ma ọ bụ, ị bụrụ gọvanọ chịbururị, dịka Danjuma Goje, nke nweere onwe ya na nnwale ndị EFCC site n'aka onyeisi ala. N'ihi na enwere naanị APC.
-N'okpuru Buhari, I Kweghị itoru, ma ọbụ nwee asambodo ziri ezi: ọ bụrụ na ị chọrọ otu, ị ga- arụta otu, ma ọbụ kọwaa nke oke ma ọbụ ahụhụ ataala nke gị
+N'ime ọtụtụ izuụka tupu o mee nhọpụta, Buharị ahụ kwa nke ṅụrụla iyi ime ka ụwa mara na Naịjirịa dị mma, gwara ụwa na ọ ga-ahọpụta naanị ndị ọ maara.
+Nke na onye guzoworo  maka ọmụma nke naanị ezinaụlọ ya, ekwesighị.
+Ọ bụrụ na i riela uru ịbụ onye amaara maka ajọ ihe na mba ụwa, gịnị mere iji ewere igweokwu na-ekwusa akụkọ dịka onye mmebi? 
+N'okpuru nlekọta Buharị, mpụ esirila na ntakịrị ma bawanye.
+N'okpuru Buharị, otu patị All Progressive Congress (APC) abụrụla nke eji mpụ wee mara, etorughị eru na ụfụ obi.
+Ọ bụ otu patị ebe ndị nna ndọrọndọrọ na-enwe steeti ma na-eburu ego ndị mmadụ, dịka Bola Tinubu nke Lagos na Adams Oshiomhole nke Edo gosipụtaworo
+Oshiomhole ahụ kwa, nke bụ onyeisi oche ndị APC ugbua, kọwara nkwenye nke otu paatị ahụ n'oge ọgbakọ n'obodo Benin n'ọnwa Jenụwarị gara aga: Enweghị Naịjirịa ọbụla ma ọbụ ikpe ziri ezi, naanị ndọrọndọrọ.
+"Ee, ngwangwa ị banyere APC, agbagharawo njọ gị niile," ka ọ mara n'ọkwa
+N'okpuru Buharị, akwụkwọ nkatọ nke ndị maara Buharị na-efu n'otu ntabianya, dịka n'okwu gọvanọ abụọ chiburula/ndị mịnịsta buuru ego steeti Lagos na Rivers.
+Oshiomhole n'onwe ya bụ nke akpụpụrụ ụlọikpe ma zaa ajụjụ ọnụ site n'aka ndị uweojii maka iri nnukwu ngarị n'ihi nhọpụta otu nke ime ụlọ
+N'okpuru Buharị, aga ejide gọvanọ n'onyoonyo ebe ọ na-ezunye akwụkwọ nde dọla n'uwe mwụda ya, dịka n'okwu gọvanọ steeti Kano, Abdullahi Ganduje, ma nwee ọṅụ n'obi isi ike ya kama ịta ahụhụ iwe ma ọbụ nnyocha.
+Ma ọ bụ, ị bụrụ gọvanọ chịbururị, dịka Danjuma Goje, nke nweere onwe ya na nnwale ndị EFCC site n'aka onyeisi ala.
+N'ihi na enwere naanị APC.
+N'okpuru Buhari, I kwesịghị itoru, ma ọbụ nwee asambodo ziri ezi: ọ bụrụ na ị chọrọ otu, ị ga-arụta otu, ma ọbụ kọwaa nke oke ma ọbụ ahụhụ ataala nke gị
 N'okpuru Buharị, ị kwesighị ịrụptụtali ihe ọbụla iji nweta nhọpụta dị ukwu, ma ọbụ ịrụpụta ihe ọbụla ma ahọpụta gị
-N'okpuru Buharị, ego ọbụla dị n'aka gị abụghị maka ọdịmma ndị ọhanaeze ma ọbụ ịrụpụta ihe ọbụla akwodobere. Ego, bụkwa nke agwọ ma ọbụ enwe ga-eri.
-N'ọchịchị Buhari, enweghị okwu mpụ nke ọchịchị a wepụtara nke nwerela onye ikpe mara. Nleanya emeela ka o doo anya na ndị ọrụ otu Buharị ndị ana enyocha enyocha ma ọbụ ndị ana ekpe ikpe nwere ike bụrụ na aga ewezụga ikpe ha ma ọbụ elele nke m kpọrọ 'Nollywood trials': nke na-aga site n'afọ rue n'afọ. Rotimi Amaechi, mịnịsta ahọgharịrị, wetara ihe nlele anya.
+N'okpuru Buharị, ego ọbụla dị n'aka gị abụghị maka ọdịmma ndị ọhanaeze ma ọbụ ịrụpụta ihe ọbụla akwodobere.
+Ego, bụkwa nke agwọ ma ọbụ enwe ga-eri.
+N'ọchịchị Buhari, enweghị okwu mpụ nke ọchịchị a wepụtara nke nwerela onye ikpe mara.
+Nleanya emeela ka o doo anya na ndị ọrụ otu Buharị ndị ana enyocha enyocha ma ọbụ ndị ana ekpe ikpe nwere ike bụrụ na aga ewezụga ikpe ha ma ọbụ elele nke m kpọrọ 'Nollywood trials': nke na-aga site n'afọ rue n'afọ.
+Rotimi Amaechi, mịnịsta ahọgharịrị, wetara ihe nlele anya.
 "Amaara m ndị ọchịchị ndị bụụrụ oke ọgaranya n'otu ntabianya, ma nkea bụ ego ha kwesiri iji rụọ okporoụzọ ma weta ihe ndị ga-enyere ndụ ndị mmadụ aka," ọ gwara otu ndị ụmụ ntorobịa Naịjirịa.
-Mara na o kwuru kpọm kwem, "Na ntabianya," na "ndị ijeri" Ọ bụghị "Ndị nde"
-Ma mara na ha dị naanị ndị Mịnịsta asaa n'ọkwa ahụ kamgbe afọ iri abụọ gara aga, ọtụtụ n'ime na-arụ ọrụ mana ọ bụ nkenke. Kedụ otu n'ime ha bara ọgaranya ukwu, nke Maazị Aka ịkwụọtọ amaghị banyere ya?
+Mara na o kwuru kpọm kwem, "Na ntabianya," na "ndị ijeri" Ọ bụghị "Ndị nde".
+Ma mara na ha dị naanị ndị Mịnịsta asaa n'ọkwa ahụ kamgbe afọ iri abụọ gara aga, ọtụtụ n'ime na-arụ ọrụ mana ọ bụ nkenke.
+Kedụ otu n'ime ha bara ọgaranya ukwu, nke Maazị Aka ịkwụọtọ amaghị banyere ya?
 Ka o kwukwara, na Amaechi kwuru nke a ka awa iri abụọ na anọ gasịrị mgbe Buharị kwere nkwa na APC ga-adọpụta ndị Naịjirịa mmadụ otu nde n'olulu ụbịam n'ime afọ iri
 N"okwu gọvanọ chiburu kwuru. "Ndị ndọrọndọrọ anyị kwesiri ime ka o doo anya etu ha ga-esi dọpụta ndị mmadụ n'olulu ụbịam"
 Nke bụ eziokwu bụ na site n'ebumnobi ndị nnlkọta nke British, ọ wepụla ihe nzochi niile nke ibu agha megide mpụ ma ọbụ imepụta ihe ọbụla. Nhọpụta ya bụ ịkwọ aka ma tiere ọkụkọ nyere olileanya ndị mmadụ.
