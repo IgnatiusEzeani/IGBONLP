@@ -1,0 +1,19 @@
+# Treat large datasets, archives, and static assets as generated/vendored so they do not skew GitHub language stats.
+# This repo contains substantial data files and notebook artifacts that were otherwise inflating the language breakdown.
+
+*.zip linguist-generated=true
+*.gz linguist-generated=true
+*.tar linguist-generated=true
+*.txt linguist-generated=true
+*.en linguist-generated=true
+*.ig linguist-generated=true
+*.xml linguist-vendored=true
+*.png linguist-vendored=true
+*.jpg linguist-vendored=true
+*.jpeg linguist-vendored=true
+*.gif linguist-vendored=true
+*.svg linguist-vendored=true
+
+ig_monoling/** linguist-generated=true
+ig_en_mt/** linguist-generated=true
+assets/** linguist-vendored=true
